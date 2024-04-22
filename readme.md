@@ -1,6 +1,6 @@
-# TechiDaily
+# Animation Videos Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://animation-videos.techidaily.com](https://animation-videos.techidaily.com)
 
 ## Publish
 
