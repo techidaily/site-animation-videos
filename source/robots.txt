@@ -1,4 +1,4 @@
-Sitemap: https://animation-videos.techidaily.com/sitemap.xml
+Sitemap: https://animation-videos.techidaily.com/sitemap_index.xml
 User-agent: Googlebot
 Disallow:
 
