@@ -1,7 +1,7 @@
 ---
 title: New 2024 Approved 12 Captivating Websites with Triggered Animate on Scroll Examples
-date: 2024-05-19T03:05:12.040Z
-updated: 2024-05-20T03:05:12.040Z
+date: 2024-06-30T12:27:51.372Z
+updated: 2024-07-01T12:27:51.372Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New 2024 Approved 12 Captivating Websites with Triggered Animate on Scroll Examples
 excerpt: This Article Describes New 2024 Approved 12 Captivating Websites with Triggered Animate on Scroll Examples
 keywords: how to liven up your animate website on scroll,12 captivating websites with triggered animate on scroll examples,10 classical animated cartoon types with examples,5 websites with animated logos that can catch your eyes,dead simple guide to create new and exciting blackboard animation,animate website on scroll,fuel your creativity with 10 awesome collection of 2d animation examples
-thumbnail: https://www.lifewire.com/thmb/xLyhmkxw8rwSLNhzfV0GfYs8tZc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-watch-tiktok-without-the-app-63a4562e4c4b4bd69477425853809a35.jpg
+thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f84ca632563f78a12990cc533.jpg
 ---
 
 ## 12 Captivating Websites with Triggered Animate on Scroll Examples
@@ -541,53 +541,53 @@ This is the kind of project that you can do yourself with the right templates an
 
 Alright, now let's move on to our promised **Text Motion Graphics After Effects** and **Text Motion Graphics Premiere Pro** templates. We've tried our best to pick a variety out for you so that you can have a good selection to choose from! You should also take the time to explore the different platforms where these templates are offered in case you end up needing a different look!
 
-### 01[**Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**](https://elements.envato.com/clean-and-elegant-corporate-identity-text-reveal-m-LNZBKE4?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 01 **Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**
 
 The first on this list is the ‘Clean and Elegant Corporate Identity — Text Reveal' by Mogrt. The title is quite explanatory in and of itself, but just in case you're confused, it's a template that was designed for professionals and brands to establish their corporate identity. The font is very modern in design, and it comes with several flare variations so that the reveal works out in the way that you want it to.
 
 Other aspects, like the shadow blur, opacity, particle size (for the reveal), and text glossiness are also adjustable and can be changed at will based on your standards.
 
-### 02[**Multipurpose Clean 3D Text to Title**](https://elements.envato.com/multipurpose-clean-3d-text-to-title-mogrt-GBY4SJA?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 02 **Multipurpose Clean 3D Text to Title**
 
 The next **text motion** template is the ‘Multipurpose Clean 3D Text to Title' also created by Mogrt. This one is **text motion graphics** that you can use for **Premiere Pro** and, with proper customization, and be used for just about anything that you want! It's a very multi-purpose kind of graphic, one that you can maybe sneak in as an advert or for announcing celebrations or anniversaries!
 
 As a final note, if you want to use this graphic as **text motion** for [after effects](https://1.envato.market/multipurpose-clean-3d-text-title-mogrt), it is available for that as well!
 
-### 03[**Simple Motion Text | Premiere Pro**](https://elements.envato.com/simple-motion-text-premiere-pro-GBTX88N?%5Fga=2.13864439.1125999308.1642156437-697849157.1641902481)
+### 03 **Simple Motion Text | Premiere Pro**
 
 This next template, the ‘Simple Motion Text' graphic, is one that is available for both Premiere Pro and After Effects (though the link we've provided is for the Premiere Pro version!) As the name implies, the animation is quite simple, which may be exactly what you want, in any case. It certainly makes it very versatile (especially as you can change font style and color as you will). Making it the perfect template for a beginner that's just starting out and doesn't want anything too complicated.
 
-### 04[**30 Glitch Text Presets For Premiere Pro | Mogrt**](https://elements.envato.com/30-glitch-text-presets-for-premiere-pro-mogrt-CAMGZUK?%5Fga=2.77311317.1125999308.1642156437-697849157.1641902481)
+### 04 **30 Glitch Text Presets For Premiere Pro | Mogrt**
 
 This next template, the ‘30 Glitch Text Presets' by Mogrt is a Premiere Pro exclusive! It's also quite fun in its particulars. As a template, it's not as versatile as the one that we introduced previously, since the ‘glitch' effect gives off quite the unique vibes, but that doesn't make it any less potent at catching the eyes of your audience!
 
 The best part, in this case, is that it comes with 30 pre-sets, all with fitting glitch sound effects (included in the pack) that you can use. Of course, there are other customization functions as well, including font style, color, transparency, and so on.
 
-### 05[**Comic Bubbles MOGRT**](https://elements.envato.com/comic-bubbles-mogrt-F7RGDBH?%5Fga=2.69380432.1125999308.1642156437-697849157.1641902481)
+### 05 **Comic Bubbles MOGRT**
 
 Again, this next templated, called ‘Comic Bubbles', kind of has its own unique vibe, making it inflexible in some ways but also more fun if that's the kind of look that you're looking for. Which, in this case, are literal ‘Comic' text bubbles, like you would see in your old 90s comic (loud, pop-y, and with lots of bright colors!) The only difference from that to this is that these comic text bubbles move, allowing you to create ‘punchy' text in between animated projects.
 
 For your reference, there are 80 different comic bubbles included in the pack. All of which are easy to customize and will allow you to adjust colors, text, and transition effects (have a look at the video that we've linked if you want to see it in action!)
 
-### 06[**Smoke To Text Reveal (Mogrt)**](https://elements.envato.com/smoke-to-text-reveal-mogrt-7JZWR45?%5Fga=2.102885568.1125999308.1642156437-697849157.1641902481)
+### 06 **Smoke To Text Reveal (Mogrt)**
 
 This next template, ‘Smoke to Text Reveal' is another one that serves a very particular need. To help with visualization, the **text motion graphics** are at first obscured by smoke before it bubbles up into a crisp, modern text reveal! It's perfect for those looking for underwater-themed **text motion graphics**. Or those who want to serve a hint of mystery with the smoke effect.
 
 This is **Text Motion Graphics - Premiere Pro**. And the best part about it is that you can customize the text and the background at will — allowing you to truly make the template your own and make the most out of the smoke-to-reveal effect.
 
-### 07[**Text Messages Toolkit**](https://elements.envato.com/text-messages-toolkit-R6YBA2M?%5Fga=2.110661189.1125999308.1642156437-697849157.1641902481)
+### 07 **Text Messages Toolkit**
 
 Want to appeal to the Gen Z audience? Then, the ‘text messages toolkit' might be a fun **text motion graphics** for you to try. As you can perhaps surmise from the name, it's a template that you can use in order to create ‘text message' interactions. It's customizable too! You can change the text box color, size, transparency, and just have a ball pimping it out of that's what you want.
 
-### 08[**Large Text Title Block**](https://mixkit.co/free-premiere-pro-templates/large-text-title-block-14/)
+### 08 **Large Text Title Block**
 
 With the ‘large text title block' template, you have the flexibility of the naturally more modern and minimalistic design, allowing you to use it for a wide variety of different projects. It works especially well for advertisements, if you're wondering about potential uses, or as transition graphics between text to video!
 
-### 09[**Blueprint Titles**](https://elements.envato.com/blueprint-titles-4Z9BFN8?%5Fga=2.43224421.1125999308.1642156437-697849157.1641902481)
+### 09 **Blueprint Titles**
 
 Want something that's a little quirkier? Or, perhaps, instructional? Then the ‘Blueprint Titles' template is one that you can consider. As you can perhaps guess from the name, it allows you to create **text motion graphics** in a style that is similar to the kind of blueprints you usually see when working with design or architecture.
 
-### 10[**Dynamic Minimalism**](https://videohive.net/item/dynamic-minimalism-essential-graphics-mogrt/21637324?s%5Frank=16&%5Fga=2.111208772.1125999308.1642156437-697849157.1641902481)
+### 10 **Dynamic Minimalism**
 
 Sometimes, simple really is best! And, this next template, the ‘Dynamic Minimalism' **text motion after effects** and **text motion graphics premiere pro** template is one that you might want in your arsenal just for the sake of your simpler projects! The kit comes with 30 different animations, as well as other customization functions that you can play around with to add a little personality to what are otherwise very minimalistic designs.
 
@@ -643,53 +643,53 @@ This is the kind of project that you can do yourself with the right templates an
 
 Alright, now let's move on to our promised **Text Motion Graphics After Effects** and **Text Motion Graphics Premiere Pro** templates. We've tried our best to pick a variety out for you so that you can have a good selection to choose from! You should also take the time to explore the different platforms where these templates are offered in case you end up needing a different look!
 
-### 01[**Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**](https://elements.envato.com/clean-and-elegant-corporate-identity-text-reveal-m-LNZBKE4?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 01 **Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**
 
 The first on this list is the ‘Clean and Elegant Corporate Identity — Text Reveal' by Mogrt. The title is quite explanatory in and of itself, but just in case you're confused, it's a template that was designed for professionals and brands to establish their corporate identity. The font is very modern in design, and it comes with several flare variations so that the reveal works out in the way that you want it to.
 
 Other aspects, like the shadow blur, opacity, particle size (for the reveal), and text glossiness are also adjustable and can be changed at will based on your standards.
 
-### 02[**Multipurpose Clean 3D Text to Title**](https://elements.envato.com/multipurpose-clean-3d-text-to-title-mogrt-GBY4SJA?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 02 **Multipurpose Clean 3D Text to Title**
 
 The next **text motion** template is the ‘Multipurpose Clean 3D Text to Title' also created by Mogrt. This one is **text motion graphics** that you can use for **Premiere Pro** and, with proper customization, and be used for just about anything that you want! It's a very multi-purpose kind of graphic, one that you can maybe sneak in as an advert or for announcing celebrations or anniversaries!
 
 As a final note, if you want to use this graphic as **text motion** for [after effects](https://1.envato.market/multipurpose-clean-3d-text-title-mogrt), it is available for that as well!
 
-### 03[**Simple Motion Text | Premiere Pro**](https://elements.envato.com/simple-motion-text-premiere-pro-GBTX88N?%5Fga=2.13864439.1125999308.1642156437-697849157.1641902481)
+### 03 **Simple Motion Text | Premiere Pro**
 
 This next template, the ‘Simple Motion Text' graphic, is one that is available for both Premiere Pro and After Effects (though the link we've provided is for the Premiere Pro version!) As the name implies, the animation is quite simple, which may be exactly what you want, in any case. It certainly makes it very versatile (especially as you can change font style and color as you will). Making it the perfect template for a beginner that's just starting out and doesn't want anything too complicated.
 
-### 04[**30 Glitch Text Presets For Premiere Pro | Mogrt**](https://elements.envato.com/30-glitch-text-presets-for-premiere-pro-mogrt-CAMGZUK?%5Fga=2.77311317.1125999308.1642156437-697849157.1641902481)
+### 04 **30 Glitch Text Presets For Premiere Pro | Mogrt**
 
 This next template, the ‘30 Glitch Text Presets' by Mogrt is a Premiere Pro exclusive! It's also quite fun in its particulars. As a template, it's not as versatile as the one that we introduced previously, since the ‘glitch' effect gives off quite the unique vibes, but that doesn't make it any less potent at catching the eyes of your audience!
 
 The best part, in this case, is that it comes with 30 pre-sets, all with fitting glitch sound effects (included in the pack) that you can use. Of course, there are other customization functions as well, including font style, color, transparency, and so on.
 
-### 05[**Comic Bubbles MOGRT**](https://elements.envato.com/comic-bubbles-mogrt-F7RGDBH?%5Fga=2.69380432.1125999308.1642156437-697849157.1641902481)
+### 05 **Comic Bubbles MOGRT**
 
 Again, this next templated, called ‘Comic Bubbles', kind of has its own unique vibe, making it inflexible in some ways but also more fun if that's the kind of look that you're looking for. Which, in this case, are literal ‘Comic' text bubbles, like you would see in your old 90s comic (loud, pop-y, and with lots of bright colors!) The only difference from that to this is that these comic text bubbles move, allowing you to create ‘punchy' text in between animated projects.
 
 For your reference, there are 80 different comic bubbles included in the pack. All of which are easy to customize and will allow you to adjust colors, text, and transition effects (have a look at the video that we've linked if you want to see it in action!)
 
-### 06[**Smoke To Text Reveal (Mogrt)**](https://elements.envato.com/smoke-to-text-reveal-mogrt-7JZWR45?%5Fga=2.102885568.1125999308.1642156437-697849157.1641902481)
+### 06 **Smoke To Text Reveal (Mogrt)**
 
 This next template, ‘Smoke to Text Reveal' is another one that serves a very particular need. To help with visualization, the **text motion graphics** are at first obscured by smoke before it bubbles up into a crisp, modern text reveal! It's perfect for those looking for underwater-themed **text motion graphics**. Or those who want to serve a hint of mystery with the smoke effect.
 
 This is **Text Motion Graphics - Premiere Pro**. And the best part about it is that you can customize the text and the background at will — allowing you to truly make the template your own and make the most out of the smoke-to-reveal effect.
 
-### 07[**Text Messages Toolkit**](https://elements.envato.com/text-messages-toolkit-R6YBA2M?%5Fga=2.110661189.1125999308.1642156437-697849157.1641902481)
+### 07 **Text Messages Toolkit**
 
 Want to appeal to the Gen Z audience? Then, the ‘text messages toolkit' might be a fun **text motion graphics** for you to try. As you can perhaps surmise from the name, it's a template that you can use in order to create ‘text message' interactions. It's customizable too! You can change the text box color, size, transparency, and just have a ball pimping it out of that's what you want.
 
-### 08[**Large Text Title Block**](https://mixkit.co/free-premiere-pro-templates/large-text-title-block-14/)
+### 08 **Large Text Title Block**
 
 With the ‘large text title block' template, you have the flexibility of the naturally more modern and minimalistic design, allowing you to use it for a wide variety of different projects. It works especially well for advertisements, if you're wondering about potential uses, or as transition graphics between text to video!
 
-### 09[**Blueprint Titles**](https://elements.envato.com/blueprint-titles-4Z9BFN8?%5Fga=2.43224421.1125999308.1642156437-697849157.1641902481)
+### 09 **Blueprint Titles**
 
 Want something that's a little quirkier? Or, perhaps, instructional? Then the ‘Blueprint Titles' template is one that you can consider. As you can perhaps guess from the name, it allows you to create **text motion graphics** in a style that is similar to the kind of blueprints you usually see when working with design or architecture.
 
-### 10[**Dynamic Minimalism**](https://videohive.net/item/dynamic-minimalism-essential-graphics-mogrt/21637324?s%5Frank=16&%5Fga=2.111208772.1125999308.1642156437-697849157.1641902481)
+### 10 **Dynamic Minimalism**
 
 Sometimes, simple really is best! And, this next template, the ‘Dynamic Minimalism' **text motion after effects** and **text motion graphics premiere pro** template is one that you might want in your arsenal just for the sake of your simpler projects! The kit comes with 30 different animations, as well as other customization functions that you can play around with to add a little personality to what are otherwise very minimalistic designs.
 
@@ -745,53 +745,53 @@ This is the kind of project that you can do yourself with the right templates an
 
 Alright, now let's move on to our promised **Text Motion Graphics After Effects** and **Text Motion Graphics Premiere Pro** templates. We've tried our best to pick a variety out for you so that you can have a good selection to choose from! You should also take the time to explore the different platforms where these templates are offered in case you end up needing a different look!
 
-### 01[**Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**](https://elements.envato.com/clean-and-elegant-corporate-identity-text-reveal-m-LNZBKE4?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 01 **Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**
 
 The first on this list is the ‘Clean and Elegant Corporate Identity — Text Reveal' by Mogrt. The title is quite explanatory in and of itself, but just in case you're confused, it's a template that was designed for professionals and brands to establish their corporate identity. The font is very modern in design, and it comes with several flare variations so that the reveal works out in the way that you want it to.
 
 Other aspects, like the shadow blur, opacity, particle size (for the reveal), and text glossiness are also adjustable and can be changed at will based on your standards.
 
-### 02[**Multipurpose Clean 3D Text to Title**](https://elements.envato.com/multipurpose-clean-3d-text-to-title-mogrt-GBY4SJA?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 02 **Multipurpose Clean 3D Text to Title**
 
 The next **text motion** template is the ‘Multipurpose Clean 3D Text to Title' also created by Mogrt. This one is **text motion graphics** that you can use for **Premiere Pro** and, with proper customization, and be used for just about anything that you want! It's a very multi-purpose kind of graphic, one that you can maybe sneak in as an advert or for announcing celebrations or anniversaries!
 
 As a final note, if you want to use this graphic as **text motion** for [after effects](https://1.envato.market/multipurpose-clean-3d-text-title-mogrt), it is available for that as well!
 
-### 03[**Simple Motion Text | Premiere Pro**](https://elements.envato.com/simple-motion-text-premiere-pro-GBTX88N?%5Fga=2.13864439.1125999308.1642156437-697849157.1641902481)
+### 03 **Simple Motion Text | Premiere Pro**
 
 This next template, the ‘Simple Motion Text' graphic, is one that is available for both Premiere Pro and After Effects (though the link we've provided is for the Premiere Pro version!) As the name implies, the animation is quite simple, which may be exactly what you want, in any case. It certainly makes it very versatile (especially as you can change font style and color as you will). Making it the perfect template for a beginner that's just starting out and doesn't want anything too complicated.
 
-### 04[**30 Glitch Text Presets For Premiere Pro | Mogrt**](https://elements.envato.com/30-glitch-text-presets-for-premiere-pro-mogrt-CAMGZUK?%5Fga=2.77311317.1125999308.1642156437-697849157.1641902481)
+### 04 **30 Glitch Text Presets For Premiere Pro | Mogrt**
 
 This next template, the ‘30 Glitch Text Presets' by Mogrt is a Premiere Pro exclusive! It's also quite fun in its particulars. As a template, it's not as versatile as the one that we introduced previously, since the ‘glitch' effect gives off quite the unique vibes, but that doesn't make it any less potent at catching the eyes of your audience!
 
 The best part, in this case, is that it comes with 30 pre-sets, all with fitting glitch sound effects (included in the pack) that you can use. Of course, there are other customization functions as well, including font style, color, transparency, and so on.
 
-### 05[**Comic Bubbles MOGRT**](https://elements.envato.com/comic-bubbles-mogrt-F7RGDBH?%5Fga=2.69380432.1125999308.1642156437-697849157.1641902481)
+### 05 **Comic Bubbles MOGRT**
 
 Again, this next templated, called ‘Comic Bubbles', kind of has its own unique vibe, making it inflexible in some ways but also more fun if that's the kind of look that you're looking for. Which, in this case, are literal ‘Comic' text bubbles, like you would see in your old 90s comic (loud, pop-y, and with lots of bright colors!) The only difference from that to this is that these comic text bubbles move, allowing you to create ‘punchy' text in between animated projects.
 
 For your reference, there are 80 different comic bubbles included in the pack. All of which are easy to customize and will allow you to adjust colors, text, and transition effects (have a look at the video that we've linked if you want to see it in action!)
 
-### 06[**Smoke To Text Reveal (Mogrt)**](https://elements.envato.com/smoke-to-text-reveal-mogrt-7JZWR45?%5Fga=2.102885568.1125999308.1642156437-697849157.1641902481)
+### 06 **Smoke To Text Reveal (Mogrt)**
 
 This next template, ‘Smoke to Text Reveal' is another one that serves a very particular need. To help with visualization, the **text motion graphics** are at first obscured by smoke before it bubbles up into a crisp, modern text reveal! It's perfect for those looking for underwater-themed **text motion graphics**. Or those who want to serve a hint of mystery with the smoke effect.
 
 This is **Text Motion Graphics - Premiere Pro**. And the best part about it is that you can customize the text and the background at will — allowing you to truly make the template your own and make the most out of the smoke-to-reveal effect.
 
-### 07[**Text Messages Toolkit**](https://elements.envato.com/text-messages-toolkit-R6YBA2M?%5Fga=2.110661189.1125999308.1642156437-697849157.1641902481)
+### 07 **Text Messages Toolkit**
 
 Want to appeal to the Gen Z audience? Then, the ‘text messages toolkit' might be a fun **text motion graphics** for you to try. As you can perhaps surmise from the name, it's a template that you can use in order to create ‘text message' interactions. It's customizable too! You can change the text box color, size, transparency, and just have a ball pimping it out of that's what you want.
 
-### 08[**Large Text Title Block**](https://mixkit.co/free-premiere-pro-templates/large-text-title-block-14/)
+### 08 **Large Text Title Block**
 
 With the ‘large text title block' template, you have the flexibility of the naturally more modern and minimalistic design, allowing you to use it for a wide variety of different projects. It works especially well for advertisements, if you're wondering about potential uses, or as transition graphics between text to video!
 
-### 09[**Blueprint Titles**](https://elements.envato.com/blueprint-titles-4Z9BFN8?%5Fga=2.43224421.1125999308.1642156437-697849157.1641902481)
+### 09 **Blueprint Titles**
 
 Want something that's a little quirkier? Or, perhaps, instructional? Then the ‘Blueprint Titles' template is one that you can consider. As you can perhaps guess from the name, it allows you to create **text motion graphics** in a style that is similar to the kind of blueprints you usually see when working with design or architecture.
 
-### 10[**Dynamic Minimalism**](https://videohive.net/item/dynamic-minimalism-essential-graphics-mogrt/21637324?s%5Frank=16&%5Fga=2.111208772.1125999308.1642156437-697849157.1641902481)
+### 10 **Dynamic Minimalism**
 
 Sometimes, simple really is best! And, this next template, the ‘Dynamic Minimalism' **text motion after effects** and **text motion graphics premiere pro** template is one that you might want in your arsenal just for the sake of your simpler projects! The kit comes with 30 different animations, as well as other customization functions that you can play around with to add a little personality to what are otherwise very minimalistic designs.
 
@@ -847,53 +847,53 @@ This is the kind of project that you can do yourself with the right templates an
 
 Alright, now let's move on to our promised **Text Motion Graphics After Effects** and **Text Motion Graphics Premiere Pro** templates. We've tried our best to pick a variety out for you so that you can have a good selection to choose from! You should also take the time to explore the different platforms where these templates are offered in case you end up needing a different look!
 
-### 01[**Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**](https://elements.envato.com/clean-and-elegant-corporate-identity-text-reveal-m-LNZBKE4?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 01 **Clean and Elegant Corporate Identity – Text Reveal (Mogrt)**
 
 The first on this list is the ‘Clean and Elegant Corporate Identity — Text Reveal' by Mogrt. The title is quite explanatory in and of itself, but just in case you're confused, it's a template that was designed for professionals and brands to establish their corporate identity. The font is very modern in design, and it comes with several flare variations so that the reveal works out in the way that you want it to.
 
 Other aspects, like the shadow blur, opacity, particle size (for the reveal), and text glossiness are also adjustable and can be changed at will based on your standards.
 
-### 02[**Multipurpose Clean 3D Text to Title**](https://elements.envato.com/multipurpose-clean-3d-text-to-title-mogrt-GBY4SJA?%5Fga=2.106613187.1125999308.1642156437-697849157.1641902481)
+### 02 **Multipurpose Clean 3D Text to Title**
 
 The next **text motion** template is the ‘Multipurpose Clean 3D Text to Title' also created by Mogrt. This one is **text motion graphics** that you can use for **Premiere Pro** and, with proper customization, and be used for just about anything that you want! It's a very multi-purpose kind of graphic, one that you can maybe sneak in as an advert or for announcing celebrations or anniversaries!
 
 As a final note, if you want to use this graphic as **text motion** for [after effects](https://1.envato.market/multipurpose-clean-3d-text-title-mogrt), it is available for that as well!
 
-### 03[**Simple Motion Text | Premiere Pro**](https://elements.envato.com/simple-motion-text-premiere-pro-GBTX88N?%5Fga=2.13864439.1125999308.1642156437-697849157.1641902481)
+### 03 **Simple Motion Text | Premiere Pro**
 
 This next template, the ‘Simple Motion Text' graphic, is one that is available for both Premiere Pro and After Effects (though the link we've provided is for the Premiere Pro version!) As the name implies, the animation is quite simple, which may be exactly what you want, in any case. It certainly makes it very versatile (especially as you can change font style and color as you will). Making it the perfect template for a beginner that's just starting out and doesn't want anything too complicated.
 
-### 04[**30 Glitch Text Presets For Premiere Pro | Mogrt**](https://elements.envato.com/30-glitch-text-presets-for-premiere-pro-mogrt-CAMGZUK?%5Fga=2.77311317.1125999308.1642156437-697849157.1641902481)
+### 04 **30 Glitch Text Presets For Premiere Pro | Mogrt**
 
 This next template, the ‘30 Glitch Text Presets' by Mogrt is a Premiere Pro exclusive! It's also quite fun in its particulars. As a template, it's not as versatile as the one that we introduced previously, since the ‘glitch' effect gives off quite the unique vibes, but that doesn't make it any less potent at catching the eyes of your audience!
 
 The best part, in this case, is that it comes with 30 pre-sets, all with fitting glitch sound effects (included in the pack) that you can use. Of course, there are other customization functions as well, including font style, color, transparency, and so on.
 
-### 05[**Comic Bubbles MOGRT**](https://elements.envato.com/comic-bubbles-mogrt-F7RGDBH?%5Fga=2.69380432.1125999308.1642156437-697849157.1641902481)
+### 05 **Comic Bubbles MOGRT**
 
 Again, this next templated, called ‘Comic Bubbles', kind of has its own unique vibe, making it inflexible in some ways but also more fun if that's the kind of look that you're looking for. Which, in this case, are literal ‘Comic' text bubbles, like you would see in your old 90s comic (loud, pop-y, and with lots of bright colors!) The only difference from that to this is that these comic text bubbles move, allowing you to create ‘punchy' text in between animated projects.
 
 For your reference, there are 80 different comic bubbles included in the pack. All of which are easy to customize and will allow you to adjust colors, text, and transition effects (have a look at the video that we've linked if you want to see it in action!)
 
-### 06[**Smoke To Text Reveal (Mogrt)**](https://elements.envato.com/smoke-to-text-reveal-mogrt-7JZWR45?%5Fga=2.102885568.1125999308.1642156437-697849157.1641902481)
+### 06 **Smoke To Text Reveal (Mogrt)**
 
 This next template, ‘Smoke to Text Reveal' is another one that serves a very particular need. To help with visualization, the **text motion graphics** are at first obscured by smoke before it bubbles up into a crisp, modern text reveal! It's perfect for those looking for underwater-themed **text motion graphics**. Or those who want to serve a hint of mystery with the smoke effect.
 
 This is **Text Motion Graphics - Premiere Pro**. And the best part about it is that you can customize the text and the background at will — allowing you to truly make the template your own and make the most out of the smoke-to-reveal effect.
 
-### 07[**Text Messages Toolkit**](https://elements.envato.com/text-messages-toolkit-R6YBA2M?%5Fga=2.110661189.1125999308.1642156437-697849157.1641902481)
+### 07 **Text Messages Toolkit**
 
 Want to appeal to the Gen Z audience? Then, the ‘text messages toolkit' might be a fun **text motion graphics** for you to try. As you can perhaps surmise from the name, it's a template that you can use in order to create ‘text message' interactions. It's customizable too! You can change the text box color, size, transparency, and just have a ball pimping it out of that's what you want.
 
-### 08[**Large Text Title Block**](https://mixkit.co/free-premiere-pro-templates/large-text-title-block-14/)
+### 08 **Large Text Title Block**
 
 With the ‘large text title block' template, you have the flexibility of the naturally more modern and minimalistic design, allowing you to use it for a wide variety of different projects. It works especially well for advertisements, if you're wondering about potential uses, or as transition graphics between text to video!
 
-### 09[**Blueprint Titles**](https://elements.envato.com/blueprint-titles-4Z9BFN8?%5Fga=2.43224421.1125999308.1642156437-697849157.1641902481)
+### 09 **Blueprint Titles**
 
 Want something that's a little quirkier? Or, perhaps, instructional? Then the ‘Blueprint Titles' template is one that you can consider. As you can perhaps guess from the name, it allows you to create **text motion graphics** in a style that is similar to the kind of blueprints you usually see when working with design or architecture.
 
-### 10[**Dynamic Minimalism**](https://videohive.net/item/dynamic-minimalism-essential-graphics-mogrt/21637324?s%5Frank=16&%5Fga=2.111208772.1125999308.1642156437-697849157.1641902481)
+### 10 **Dynamic Minimalism**
 
 Sometimes, simple really is best! And, this next template, the ‘Dynamic Minimalism' **text motion after effects** and **text motion graphics premiere pro** template is one that you might want in your arsenal just for the sake of your simpler projects! The kit comes with 30 different animations, as well as other customization functions that you can play around with to add a little personality to what are otherwise very minimalistic designs.
 
@@ -953,7 +953,7 @@ Before ending in a quick rundown, a couple of reasons why GIFs are worth the inv
 
 As promised, we'll be starting off with the tools that you'll need in order to create GIFs easily (or **GIF Animation Maker** tools, if you'd prefer). We've made sure to pick out a variety for you so that you won't have to go looking elsewhere for other options We also included what people tend to like and dislike about each option so that you can make a choice as to what you think is the best **GIF animation maker** more easily.
 
-### 01**[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 01** Wondershare Filmora
 
 If what you're looking for is **software for GIF animation,** then Filmora is your best bet This software is available for both Mac and Windows users (with options for both a perpetual license and subscription packages for you to choose from.) This is a video editing tool that is capable of making incredibly professional results. And, perhaps more importantly (considering the subject of this article), it will allow you easily turn a video into a **2D Animation GIF** that you can use for your marketing
 
@@ -1149,7 +1149,7 @@ Before ending in a quick rundown, a couple of reasons why GIFs are worth the inv
 
 As promised, we'll be starting off with the tools that you'll need in order to create GIFs easily (or **GIF Animation Maker** tools, if you'd prefer). We've made sure to pick out a variety for you so that you won't have to go looking elsewhere for other options We also included what people tend to like and dislike about each option so that you can make a choice as to what you think is the best **GIF animation maker** more easily.
 
-### 01**[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 01** Wondershare Filmora
 
 If what you're looking for is **software for GIF animation,** then Filmora is your best bet This software is available for both Mac and Windows users (with options for both a perpetual license and subscription packages for you to choose from.) This is a video editing tool that is capable of making incredibly professional results. And, perhaps more importantly (considering the subject of this article), it will allow you easily turn a video into a **2D Animation GIF** that you can use for your marketing
 
@@ -1345,7 +1345,7 @@ Before ending in a quick rundown, a couple of reasons why GIFs are worth the inv
 
 As promised, we'll be starting off with the tools that you'll need in order to create GIFs easily (or **GIF Animation Maker** tools, if you'd prefer). We've made sure to pick out a variety for you so that you won't have to go looking elsewhere for other options We also included what people tend to like and dislike about each option so that you can make a choice as to what you think is the best **GIF animation maker** more easily.
 
-### 01**[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 01** Wondershare Filmora
 
 If what you're looking for is **software for GIF animation,** then Filmora is your best bet This software is available for both Mac and Windows users (with options for both a perpetual license and subscription packages for you to choose from.) This is a video editing tool that is capable of making incredibly professional results. And, perhaps more importantly (considering the subject of this article), it will allow you easily turn a video into a **2D Animation GIF** that you can use for your marketing
 
@@ -1541,7 +1541,7 @@ Before ending in a quick rundown, a couple of reasons why GIFs are worth the inv
 
 As promised, we'll be starting off with the tools that you'll need in order to create GIFs easily (or **GIF Animation Maker** tools, if you'd prefer). We've made sure to pick out a variety for you so that you won't have to go looking elsewhere for other options We also included what people tend to like and dislike about each option so that you can make a choice as to what you think is the best **GIF animation maker** more easily.
 
-### 01**[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 01** Wondershare Filmora
 
 If what you're looking for is **software for GIF animation,** then Filmora is your best bet This software is available for both Mac and Windows users (with options for both a perpetual license and subscription packages for you to choose from.) This is a video editing tool that is capable of making incredibly professional results. And, perhaps more importantly (considering the subject of this article), it will allow you easily turn a video into a **2D Animation GIF** that you can use for your marketing
 

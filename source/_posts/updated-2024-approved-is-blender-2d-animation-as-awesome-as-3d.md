@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved Is Blender 2D Animation As Awesome As 3D?
-date: 2024-05-19T03:05:41.534Z
-updated: 2024-05-20T03:05:41.534Z
+date: 2024-06-30T12:27:43.918Z
+updated: 2024-07-01T12:27:43.918Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated 2024 Approved Is Blender 2D Animation As Awesome As 3D?
 excerpt: This Article Describes Updated 2024 Approved Is Blender 2D Animation As Awesome As 3D?
 keywords: the 10 best batman anime movies 2024 updated,all about 3d medical animation and its uses,blender animation 2d,differences between 2d and 3d animation,8 blender 3d animation tutorials for beginners,what are differences between 2d and 3d animation,is blender 2d animation as awesome as 3d
-thumbnail: https://www.lifewire.com/thmb/is45Yw-eZ0hbBH1GVSPPw-e8Duo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-smart-tv-lifestyle-alt-5c89160046e0fb00013365c2.jpg
+thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879ccd1eca0b9ed1b9c559e12d9.jpg
 ---
 
 ## Is Blender 2D Animation As Awesome As 3D?

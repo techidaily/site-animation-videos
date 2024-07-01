@@ -1,7 +1,7 @@
 ---
 title: Updated 4 Things You Should Know About Pinterest GIF
-date: 2024-05-19T03:04:32.934Z
-updated: 2024-05-20T03:04:32.934Z
+date: 2024-06-30T12:27:06.065Z
+updated: 2024-07-01T12:27:06.065Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated 4 Things You Should Know About Pinterest GIF
 excerpt: This Article Describes Updated 4 Things You Should Know About Pinterest GIF
 keywords: before you learn 3d animation some things you should know,2d character animation everything you should know about it,before you learn facebook slideshow 5 things you should know how tos,everything you need to know about becoming a motion graphic designer,animated lyric video everything you should know,tips for gif to animated png you should know,4 things you should know about pinterest gif
-thumbnail: https://www.lifewire.com/thmb/g1kkp8ne6jm5E7rMiTd4CMgu2Fw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-642981042-5a903651a18d9e0037d31742.jpg
+thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4e9a9bd97f972e7408a7d734.jpg
 ---
 
 ## 4 Things You Need to Know About Pinterest GIF

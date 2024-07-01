@@ -1,7 +1,7 @@
 ---
 title: New Dead Simple Guide to Create New and Exciting Blackboard Animation
-date: 2024-05-19T03:04:46.500Z
-updated: 2024-05-20T03:04:46.500Z
+date: 2024-06-30T12:27:47.161Z
+updated: 2024-07-01T12:27:47.161Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New Dead Simple Guide to Create New and Exciting Blackboard Animation
 excerpt: This Article Describes New Dead Simple Guide to Create New and Exciting Blackboard Animation
 keywords: how to guide make animation characters with the best animated character creators,how to create benime whiteboard animation in android,dead simple guide to create new and exciting blackboard animation,how to create an animated sticky navbar,interesting fundamentals and ultimate guide to animated characters drawings,the definitive guide to whiteboard animation,ai animation how to create a whiteboard video step by step
-thumbnail: https://www.lifewire.com/thmb/Gmap6LeMRtADZthm_PJ2lXNY4cM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/copilot-b197f8dd690845d5bf8ebbc082c89c20.jpg
+thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595c634b883b7def7759d3266e.jpg
 ---
 
 ## Dead Simple Guide to Create New and Exciting Blackboard Animation

@@ -1,7 +1,7 @@
 ---
 title: New Fuel Your Creativity with 10 Awesome Collection of 2D Animation Examples for 2024
-date: 2024-05-19T03:05:32.832Z
-updated: 2024-05-20T03:05:32.832Z
+date: 2024-06-30T12:28:15.331Z
+updated: 2024-07-01T12:28:15.331Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New Fuel Your Creativity with 10 Awesome Collection of 2D Animation Examples for 2024
 excerpt: This Article Describes New Fuel Your Creativity with 10 Awesome Collection of 2D Animation Examples for 2024
 keywords: some techniques for creating animated logo that few people know about,animate your photo online with these awesome tools,15 best stop motion animation kits to fuel creativity 2024 guide,why these 10 top text motion templates are worth your attention,12 captivating websites with triggered animate on scroll examples,fuel your creativity with 10 awesome collection of 2d animation examples,10 classical animated cartoon types with examples
-thumbnail: https://www.lifewire.com/thmb/RWcl_Joktvj_rmr9ViWUZrsB7e4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/homepod-hero-5a79bc226bf06900378a7e1a.jpg
+thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f898253edd18111f294ce2b839027.jpg
 ---
 
 ## Fuel Your Creativity with 10 Awesome Collection of 2D Animation Examples
@@ -513,7 +513,7 @@ But, if you are someone who wants to get into animation, but don’t have an exp
 
 01 [Ways to Make Stop Motion Videos with Clay Using Your Phone](#Part 1)
 
-02 [How to Edit a Stop Motion Claymation Animation ](#Part 2)
+02 [How to Edit a Stop Motion Claymation Animation](#Part 2)
 
 03 [Best 5 Clay for Stop Motion and Ways to Get Started](#Part 3)
 
@@ -593,7 +593,7 @@ But, if you are someone who wants to get into animation, but don’t have an exp
 
 01 [Ways to Make Stop Motion Videos with Clay Using Your Phone](#Part 1)
 
-02 [How to Edit a Stop Motion Claymation Animation ](#Part 2)
+02 [How to Edit a Stop Motion Claymation Animation](#Part 2)
 
 03 [Best 5 Clay for Stop Motion and Ways to Get Started](#Part 3)
 
@@ -673,7 +673,7 @@ But, if you are someone who wants to get into animation, but don’t have an exp
 
 01 [Ways to Make Stop Motion Videos with Clay Using Your Phone](#Part 1)
 
-02 [How to Edit a Stop Motion Claymation Animation ](#Part 2)
+02 [How to Edit a Stop Motion Claymation Animation](#Part 2)
 
 03 [Best 5 Clay for Stop Motion and Ways to Get Started](#Part 3)
 
@@ -753,7 +753,7 @@ But, if you are someone who wants to get into animation, but don’t have an exp
 
 01 [Ways to Make Stop Motion Videos with Clay Using Your Phone](#Part 1)
 
-02 [How to Edit a Stop Motion Claymation Animation ](#Part 2)
+02 [How to Edit a Stop Motion Claymation Animation](#Part 2)
 
 03 [Best 5 Clay for Stop Motion and Ways to Get Started](#Part 3)
 
@@ -901,7 +901,7 @@ Additionally, you can use Adobe Photoshop too or some other popular software for
 
 It is also relatively easier to find text GIF maker online applications for smartphones or mobile devices. It is possible to develop gifs from the collection of still images or even from moving videos, and this task is much easier than anyone can perform. To execute this task with simplicity, we would like to recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 #### Wondershare Filmora - Best Video Editor for Mac/Windows
 
@@ -1029,7 +1029,7 @@ Additionally, you can use Adobe Photoshop too or some other popular software for
 
 It is also relatively easier to find text GIF maker online applications for smartphones or mobile devices. It is possible to develop gifs from the collection of still images or even from moving videos, and this task is much easier than anyone can perform. To execute this task with simplicity, we would like to recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 #### Wondershare Filmora - Best Video Editor for Mac/Windows
 
@@ -1157,7 +1157,7 @@ Additionally, you can use Adobe Photoshop too or some other popular software for
 
 It is also relatively easier to find text GIF maker online applications for smartphones or mobile devices. It is possible to develop gifs from the collection of still images or even from moving videos, and this task is much easier than anyone can perform. To execute this task with simplicity, we would like to recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 #### Wondershare Filmora - Best Video Editor for Mac/Windows
 
@@ -1285,7 +1285,7 @@ Additionally, you can use Adobe Photoshop too or some other popular software for
 
 It is also relatively easier to find text GIF maker online applications for smartphones or mobile devices. It is possible to develop gifs from the collection of still images or even from moving videos, and this task is much easier than anyone can perform. To execute this task with simplicity, we would like to recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 #### Wondershare Filmora - Best Video Editor for Mac/Windows
 
@@ -1441,7 +1441,7 @@ Step 8\. Now, to add the animated GIF stickers to WhatsApp, you need to click on
 
 ![Create Personalised GIF Sticker iPhone3](https://images.wondershare.com/filmora/article-images/2022/02/stunning-ideas-about-creating-personalised-whatsapp-gif-sticker-06.jpg)
 
-## Part 2 How to Use Custom Stickers in **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**?
+## Part 2 How to Use Custom Stickers in ** Wondershare Filmora Video Editor
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1563,7 +1563,7 @@ Step 8\. Now, to add the animated GIF stickers to WhatsApp, you need to click on
 
 ![Create Personalised GIF Sticker iPhone3](https://images.wondershare.com/filmora/article-images/2022/02/stunning-ideas-about-creating-personalised-whatsapp-gif-sticker-06.jpg)
 
-## Part 2 How to Use Custom Stickers in **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**?
+## Part 2 How to Use Custom Stickers in ** Wondershare Filmora Video Editor
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1685,7 +1685,7 @@ Step 8\. Now, to add the animated GIF stickers to WhatsApp, you need to click on
 
 ![Create Personalised GIF Sticker iPhone3](https://images.wondershare.com/filmora/article-images/2022/02/stunning-ideas-about-creating-personalised-whatsapp-gif-sticker-06.jpg)
 
-## Part 2 How to Use Custom Stickers in **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**?
+## Part 2 How to Use Custom Stickers in ** Wondershare Filmora Video Editor
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1807,7 +1807,7 @@ Step 8\. Now, to add the animated GIF stickers to WhatsApp, you need to click on
 
 ![Create Personalised GIF Sticker iPhone3](https://images.wondershare.com/filmora/article-images/2022/02/stunning-ideas-about-creating-personalised-whatsapp-gif-sticker-06.jpg)
 
-## Part 2 How to Use Custom Stickers in **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**?
+## Part 2 How to Use Custom Stickers in ** Wondershare Filmora Video Editor
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -2584,13 +2584,13 @@ Here is how you can create and upload GIFs with sound on Imgur.
 1. Download and run the latest version of the Imgur iOS app from here: <https://apps.apple.com/us/app/imgur-funny-meme-gif-maker/id639881495>
 2. Now press the camera button and choose a video from your device. You can add only video files with sound for making a GIF with sound.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
 
 Note: Your GIF with audio cannot be more than 30-seconds long. Use the app the trim your video down to 30-seconds. If you want, you can even trim your video below 30-seconds.
 
 1. Now, press the speaker icon on the video to unmute the sound. You can next upload the video with sound and watch it as a GIF.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
 
 ## Part 2: How to Create GIF with sound on Gfycat?
 
@@ -2604,19 +2604,19 @@ Follow the steps below to create your GIF with sound-
 
 1. Launch the Gfycat website and choose the video you want to convert. You can add files from your device or use URLs of video sites. Be sure to choose small file sizes for the best results.
 
-![ Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
 
 1. You can now trim your video down to your desired length. Remember that adding sound will make the file size big. So, it pays to keep your GIFs short to 60 seconds. Use the sliders to select the portion of the video you want to convert and then click Continue.
 
-![ Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
+![Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
 
 1. Besides sound, Gfycat also lets you add texts and captions to your GIFs. You can move the slider to the proper time and then click ADD A CAPTION to add a new text box. If you don't need to add text, click Continue and jump to the next step.
 
-![ Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
+![Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
 
 1. Now comes the time to add titles and tags to your GIFs. To create and share the GIF with sound, remember to enable the Speaker icon. After you're done, just click the FINISH button to upload your GIF with sound on Gfycat.
 
-![ Create GIF with Sound in Gfycat  ](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
 
 ## Part 3: How to Add Music And Sound Effect To GIFs With Filmora?
 
@@ -2639,7 +2639,7 @@ You can use your voiceover for your GIFs to make them awesome. Just hook up your
 1. The first step to adding music and sound effect to your GIF is to import them to your timeline.
 2. Then you can choose to add music and sound effect from the in-built audio library, or record your own voice.
 
-![ Create GIF with Sound in Filmora  ](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
+![Create GIF with Sound in Filmora](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
 
 When you're done, just export your gif file as a video in mp4 or other proper formats. You can also configure the resolution and bits for better results.
 
@@ -2686,13 +2686,13 @@ Here is how you can create and upload GIFs with sound on Imgur.
 1. Download and run the latest version of the Imgur iOS app from here: <https://apps.apple.com/us/app/imgur-funny-meme-gif-maker/id639881495>
 2. Now press the camera button and choose a video from your device. You can add only video files with sound for making a GIF with sound.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
 
 Note: Your GIF with audio cannot be more than 30-seconds long. Use the app the trim your video down to 30-seconds. If you want, you can even trim your video below 30-seconds.
 
 1. Now, press the speaker icon on the video to unmute the sound. You can next upload the video with sound and watch it as a GIF.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
 
 ## Part 2: How to Create GIF with sound on Gfycat?
 
@@ -2706,19 +2706,19 @@ Follow the steps below to create your GIF with sound-
 
 1. Launch the Gfycat website and choose the video you want to convert. You can add files from your device or use URLs of video sites. Be sure to choose small file sizes for the best results.
 
-![ Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
 
 1. You can now trim your video down to your desired length. Remember that adding sound will make the file size big. So, it pays to keep your GIFs short to 60 seconds. Use the sliders to select the portion of the video you want to convert and then click Continue.
 
-![ Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
+![Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
 
 1. Besides sound, Gfycat also lets you add texts and captions to your GIFs. You can move the slider to the proper time and then click ADD A CAPTION to add a new text box. If you don't need to add text, click Continue and jump to the next step.
 
-![ Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
+![Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
 
 1. Now comes the time to add titles and tags to your GIFs. To create and share the GIF with sound, remember to enable the Speaker icon. After you're done, just click the FINISH button to upload your GIF with sound on Gfycat.
 
-![ Create GIF with Sound in Gfycat  ](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
 
 ## Part 3: How to Add Music And Sound Effect To GIFs With Filmora?
 
@@ -2741,7 +2741,7 @@ You can use your voiceover for your GIFs to make them awesome. Just hook up your
 1. The first step to adding music and sound effect to your GIF is to import them to your timeline.
 2. Then you can choose to add music and sound effect from the in-built audio library, or record your own voice.
 
-![ Create GIF with Sound in Filmora  ](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
+![Create GIF with Sound in Filmora](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
 
 When you're done, just export your gif file as a video in mp4 or other proper formats. You can also configure the resolution and bits for better results.
 
@@ -2788,13 +2788,13 @@ Here is how you can create and upload GIFs with sound on Imgur.
 1. Download and run the latest version of the Imgur iOS app from here: <https://apps.apple.com/us/app/imgur-funny-meme-gif-maker/id639881495>
 2. Now press the camera button and choose a video from your device. You can add only video files with sound for making a GIF with sound.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
 
 Note: Your GIF with audio cannot be more than 30-seconds long. Use the app the trim your video down to 30-seconds. If you want, you can even trim your video below 30-seconds.
 
 1. Now, press the speaker icon on the video to unmute the sound. You can next upload the video with sound and watch it as a GIF.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
 
 ## Part 2: How to Create GIF with sound on Gfycat?
 
@@ -2808,19 +2808,19 @@ Follow the steps below to create your GIF with sound-
 
 1. Launch the Gfycat website and choose the video you want to convert. You can add files from your device or use URLs of video sites. Be sure to choose small file sizes for the best results.
 
-![ Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
 
 1. You can now trim your video down to your desired length. Remember that adding sound will make the file size big. So, it pays to keep your GIFs short to 60 seconds. Use the sliders to select the portion of the video you want to convert and then click Continue.
 
-![ Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
+![Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
 
 1. Besides sound, Gfycat also lets you add texts and captions to your GIFs. You can move the slider to the proper time and then click ADD A CAPTION to add a new text box. If you don't need to add text, click Continue and jump to the next step.
 
-![ Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
+![Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
 
 1. Now comes the time to add titles and tags to your GIFs. To create and share the GIF with sound, remember to enable the Speaker icon. After you're done, just click the FINISH button to upload your GIF with sound on Gfycat.
 
-![ Create GIF with Sound in Gfycat  ](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
 
 ## Part 3: How to Add Music And Sound Effect To GIFs With Filmora?
 
@@ -2843,7 +2843,7 @@ You can use your voiceover for your GIFs to make them awesome. Just hook up your
 1. The first step to adding music and sound effect to your GIF is to import them to your timeline.
 2. Then you can choose to add music and sound effect from the in-built audio library, or record your own voice.
 
-![ Create GIF with Sound in Filmora  ](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
+![Create GIF with Sound in Filmora](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
 
 When you're done, just export your gif file as a video in mp4 or other proper formats. You can also configure the resolution and bits for better results.
 
@@ -2890,13 +2890,13 @@ Here is how you can create and upload GIFs with sound on Imgur.
 1. Download and run the latest version of the Imgur iOS app from here: <https://apps.apple.com/us/app/imgur-funny-meme-gif-maker/id639881495>
 2. Now press the camera button and choose a video from your device. You can add only video files with sound for making a GIF with sound.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-choose-video.jpg)
 
 Note: Your GIF with audio cannot be more than 30-seconds long. Use the app the trim your video down to 30-seconds. If you want, you can even trim your video below 30-seconds.
 
 1. Now, press the speaker icon on the video to unmute the sound. You can next upload the video with sound and watch it as a GIF.
 
-![ Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
+![Create GIF with Sound in Imgur](https://images.wondershare.com/filmora/article-images/imgur-create-gif-with-sound.jpg)
 
 ## Part 2: How to Create GIF with sound on Gfycat?
 
@@ -2910,19 +2910,19 @@ Follow the steps below to create your GIF with sound-
 
 1. Launch the Gfycat website and choose the video you want to convert. You can add files from your device or use URLs of video sites. Be sure to choose small file sizes for the best results.
 
-![ Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/gfycat-upload-video-to-create-gif-with-sound.jpg)
 
 1. You can now trim your video down to your desired length. Remember that adding sound will make the file size big. So, it pays to keep your GIFs short to 60 seconds. Use the sliders to select the portion of the video you want to convert and then click Continue.
 
-![ Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
+![Create GIF with Sound in Gfycat - trim](https://images.wondershare.com/filmora/article-images/trim-gfycat-gif-video.jpg)
 
 1. Besides sound, Gfycat also lets you add texts and captions to your GIFs. You can move the slider to the proper time and then click ADD A CAPTION to add a new text box. If you don't need to add text, click Continue and jump to the next step.
 
-![ Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
+![Create GIF with Sound in Gfycat - add caption](https://images.wondershare.com/filmora/article-images/gfycat-gif-video-add-text.jpg)
 
 1. Now comes the time to add titles and tags to your GIFs. To create and share the GIF with sound, remember to enable the Speaker icon. After you're done, just click the FINISH button to upload your GIF with sound on Gfycat.
 
-![ Create GIF with Sound in Gfycat  ](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
+![Create GIF with Sound in Gfycat](https://images.wondershare.com/filmora/article-images/create-gif-with-audio-gfycat.jpg)
 
 ## Part 3: How to Add Music And Sound Effect To GIFs With Filmora?
 
@@ -2945,7 +2945,7 @@ You can use your voiceover for your GIFs to make them awesome. Just hook up your
 1. The first step to adding music and sound effect to your GIF is to import them to your timeline.
 2. Then you can choose to add music and sound effect from the in-built audio library, or record your own voice.
 
-![ Create GIF with Sound in Filmora  ](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
+![Create GIF with Sound in Filmora](https://images.wondershare.com/filmora/article-images/add-sound-to-gif.jpg)
 
 When you're done, just export your gif file as a video in mp4 or other proper formats. You can also configure the resolution and bits for better results.
 

@@ -1,7 +1,7 @@
 ---
 title: 2024 Approved Before You Learn 3D Animation Things You Should Know
-date: 2024-05-19T03:04:31.776Z
-updated: 2024-05-20T03:04:31.776Z
+date: 2024-06-30T12:28:28.683Z
+updated: 2024-07-01T12:28:28.683Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes 2024 Approved Before You Learn 3D Animation Things You Should Know
 excerpt: This Article Describes 2024 Approved Before You Learn 3D Animation Things You Should Know
 keywords: animated lyric video everything you should know,before you learn facebook slideshow 5 things you should know how tos,2d character animation everything you should know about it,before you learn 3d animation some things you should know,4 things you should know about pinterest gif,tips for gif to animated png you should know,top 10 animated photo collage apps you should know
-thumbnail: https://www.lifewire.com/thmb/4ql928fMUKkO_EPWrgDkfeEcVtE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/family-hanging-out-watching-videos-online-1166432791-309c6f7ac8cb4cc99875db5a77fd6f35.jpg
+thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28dd2151c249d15e615be6f528.jpg
 ---
 
 ## Before You Learn 3D Animation: Things You Should Know

@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved Learn Simple Blender Rigging in Only 2 Minutes
-date: 2024-05-19T03:05:42.677Z
-updated: 2024-05-20T03:05:42.677Z
+date: 2024-06-30T12:27:50.022Z
+updated: 2024-07-01T12:27:50.022Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated 2024 Approved Learn Simple Blender Rigging in Only 2 Minutes
 excerpt: This Article Describes Updated 2024 Approved Learn Simple Blender Rigging in Only 2 Minutes
 keywords: the only guide youll ever need to learn that make 2d rigging clear to you,learn simple blender rigging in only 2 minutes,12 captivating websites with triggered animate on scroll examples,handy tips from adobe animate rigging tutorial for all learners,ideas that will help you out in learning how to send whatsapp animated gifs,most popular tips on learning animate rigging,learn how to make your characters interactive in unity animation rigging
-thumbnail: https://www.lifewire.com/thmb/8ROImJcMy0nz5unlY1bdTJLi7tk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/dns-wordcloud-lifewire-2-0c92c02113cb4832870891ac0e13ccbc.png
+thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de65b71eab7da2ab3371e3a0f.png
 ---
 
 ## Learn Simple Blender Rigging in Only 2 Minutes
@@ -1011,7 +1011,7 @@ Not only business, but the presence of animated characters is also seen in the s
 
 #### In this article
 
-01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\] ](#Part 1)
+01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\]](#Part 1)
 
 02 [5 Create Cartoon Characters to Create Animated Characters for PRO](#Part 2)
 
@@ -1169,7 +1169,7 @@ Not only business, but the presence of animated characters is also seen in the s
 
 #### In this article
 
-01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\] ](#Part 1)
+01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\]](#Part 1)
 
 02 [5 Create Cartoon Characters to Create Animated Characters for PRO](#Part 2)
 
@@ -1327,7 +1327,7 @@ Not only business, but the presence of animated characters is also seen in the s
 
 #### In this article
 
-01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\] ](#Part 1)
+01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\]](#Part 1)
 
 02 [5 Create Cartoon Characters to Create Animated Characters for PRO](#Part 2)
 
@@ -1485,7 +1485,7 @@ Not only business, but the presence of animated characters is also seen in the s
 
 #### In this article
 
-01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\] ](#Part 1)
+01 [5 Easy Ways to Create Your Own Cartoon Character \[For Non-illustrators\]](#Part 1)
 
 02 [5 Create Cartoon Characters to Create Animated Characters for PRO](#Part 2)
 

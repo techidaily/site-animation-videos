@@ -1,7 +1,7 @@
 ---
 title: 2024 Approved Techniques on Making After Effects 2D Animation
-date: 2024-05-19T03:04:35.691Z
-updated: 2024-05-20T03:04:35.691Z
+date: 2024-06-30T12:27:31.030Z
+updated: 2024-07-01T12:27:31.030Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes 2024 Approved Techniques on Making After Effects 2D Animation
 excerpt: This Article Describes 2024 Approved Techniques on Making After Effects 2D Animation
 keywords: beginner tutorial on making unity 2d animation,after effects 2d animation,best guide for beginners on 2d animation making,techniques on how to make after effects 2d animation,the most efficient techniques for you to make 3d animation character,2d animation making,10 awesome moving animation powerpoint techniques
-thumbnail: https://www.lifewire.com/thmb/KQEPD1j8h_qKr2PB3tJ6qZQQ508=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-104626001-5c34f065c9e77c00010b8cd5.jpg
+thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39326ff49e8d4fafd11fa0e00.jpg
 ---
 
 ## Techniques on Making After Effects 2D Animation
@@ -1830,7 +1830,7 @@ Ezgif.com provides a wide range of optimization options to users after this prev
 
 ## Part 2: 3 Best GIF Combiners You Can Make GIFs
 
-### 1. [Filmora Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) \- Online GIF Combiner
+### 1. Filmora Meme Maker
 
 If you want to combine GIFs online, the Filmora meme maker is your ultimate solution.
 
@@ -1840,13 +1840,13 @@ Just with a few clicks, [your GIF is done](https://tools.techidaily.com/wondersh
 
 ![gif combiner Filmora Meme Maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-### 2. [GIPHY](https://giphy.com/explore/combiner)
+### 2. GIPHY
 
 GIPHY is a GIF combiner where you can find various GIF files to combine. All of the GIFs are funny and interesting to use for people who love to combine GIFs. There are some examples in this site, so you can have the inspiration to combine GIFs if you don't know where to start. You also can find different styles: reaction, sports, artists and more.
 
 ![gif combiner GIPHY](https://images.wondershare.com/filmora/article-images/giphy-video-to-gif.jpg)
 
-### 3. [PIXEL](http://ledpixelart.com/combine-gifs/)
+### 3. PIXEL
 
 If you don't want to use Photoshop to combine GIFs, here we recommend using PIXEL. You can use it to make GIFs easily online. You can add more than one GIF at one time. Besides, this GIF combiner can also change the GIF size to fit your needs. After the editing is made, you need to click **create animation** to export GIFs. You should know that GIF size is 32×32 for PIXEL, and 64×64 for SUPER PIXEL.
 
@@ -1985,7 +1985,7 @@ Ezgif.com provides a wide range of optimization options to users after this prev
 
 ## Part 2: 3 Best GIF Combiners You Can Make GIFs
 
-### 1. [Filmora Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) \- Online GIF Combiner
+### 1. Filmora Meme Maker
 
 If you want to combine GIFs online, the Filmora meme maker is your ultimate solution.
 
@@ -1995,13 +1995,13 @@ Just with a few clicks, [your GIF is done](https://tools.techidaily.com/wondersh
 
 ![gif combiner Filmora Meme Maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-### 2. [GIPHY](https://giphy.com/explore/combiner)
+### 2. GIPHY
 
 GIPHY is a GIF combiner where you can find various GIF files to combine. All of the GIFs are funny and interesting to use for people who love to combine GIFs. There are some examples in this site, so you can have the inspiration to combine GIFs if you don't know where to start. You also can find different styles: reaction, sports, artists and more.
 
 ![gif combiner GIPHY](https://images.wondershare.com/filmora/article-images/giphy-video-to-gif.jpg)
 
-### 3. [PIXEL](http://ledpixelart.com/combine-gifs/)
+### 3. PIXEL
 
 If you don't want to use Photoshop to combine GIFs, here we recommend using PIXEL. You can use it to make GIFs easily online. You can add more than one GIF at one time. Besides, this GIF combiner can also change the GIF size to fit your needs. After the editing is made, you need to click **create animation** to export GIFs. You should know that GIF size is 32×32 for PIXEL, and 64×64 for SUPER PIXEL.
 
@@ -2140,7 +2140,7 @@ Ezgif.com provides a wide range of optimization options to users after this prev
 
 ## Part 2: 3 Best GIF Combiners You Can Make GIFs
 
-### 1. [Filmora Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) \- Online GIF Combiner
+### 1. Filmora Meme Maker
 
 If you want to combine GIFs online, the Filmora meme maker is your ultimate solution.
 
@@ -2150,13 +2150,13 @@ Just with a few clicks, [your GIF is done](https://tools.techidaily.com/wondersh
 
 ![gif combiner Filmora Meme Maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-### 2. [GIPHY](https://giphy.com/explore/combiner)
+### 2. GIPHY
 
 GIPHY is a GIF combiner where you can find various GIF files to combine. All of the GIFs are funny and interesting to use for people who love to combine GIFs. There are some examples in this site, so you can have the inspiration to combine GIFs if you don't know where to start. You also can find different styles: reaction, sports, artists and more.
 
 ![gif combiner GIPHY](https://images.wondershare.com/filmora/article-images/giphy-video-to-gif.jpg)
 
-### 3. [PIXEL](http://ledpixelart.com/combine-gifs/)
+### 3. PIXEL
 
 If you don't want to use Photoshop to combine GIFs, here we recommend using PIXEL. You can use it to make GIFs easily online. You can add more than one GIF at one time. Besides, this GIF combiner can also change the GIF size to fit your needs. After the editing is made, you need to click **create animation** to export GIFs. You should know that GIF size is 32×32 for PIXEL, and 64×64 for SUPER PIXEL.
 
@@ -2295,7 +2295,7 @@ Ezgif.com provides a wide range of optimization options to users after this prev
 
 ## Part 2: 3 Best GIF Combiners You Can Make GIFs
 
-### 1. [Filmora Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) \- Online GIF Combiner
+### 1. Filmora Meme Maker
 
 If you want to combine GIFs online, the Filmora meme maker is your ultimate solution.
 
@@ -2305,13 +2305,13 @@ Just with a few clicks, [your GIF is done](https://tools.techidaily.com/wondersh
 
 ![gif combiner Filmora Meme Maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-### 2. [GIPHY](https://giphy.com/explore/combiner)
+### 2. GIPHY
 
 GIPHY is a GIF combiner where you can find various GIF files to combine. All of the GIFs are funny and interesting to use for people who love to combine GIFs. There are some examples in this site, so you can have the inspiration to combine GIFs if you don't know where to start. You also can find different styles: reaction, sports, artists and more.
 
 ![gif combiner GIPHY](https://images.wondershare.com/filmora/article-images/giphy-video-to-gif.jpg)
 
-### 3. [PIXEL](http://ledpixelart.com/combine-gifs/)
+### 3. PIXEL
 
 If you don't want to use Photoshop to combine GIFs, here we recommend using PIXEL. You can use it to make GIFs easily online. You can add more than one GIF at one time. Besides, this GIF combiner can also change the GIF size to fit your needs. After the editing is made, you need to click **create animation** to export GIFs. You should know that GIF size is 32×32 for PIXEL, and 64×64 for SUPER PIXEL.
 
@@ -3101,13 +3101,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 
@@ -3297,13 +3297,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 
@@ -3493,13 +3493,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 
@@ -3689,13 +3689,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 
@@ -4015,7 +4015,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 
@@ -4181,7 +4181,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 
@@ -4347,7 +4347,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 
@@ -4513,7 +4513,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 

@@ -1,7 +1,7 @@
 ---
 title: Top 10 3D Text Animation Templates
-date: 2024-05-19T03:04:26.971Z
-updated: 2024-05-20T03:04:26.971Z
+date: 2024-06-30T12:27:16.665Z
+updated: 2024-07-01T12:27:16.665Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Top 10 3D Text Animation Templates
 excerpt: This Article Describes Top 10 3D Text Animation Templates
 keywords: best 10 animated templates in canva,learn all about 3d logo animation and templates,canva animated templates,top 10 3d text animation templates,photo animator templates,2d animation examples,3d text animation
-thumbnail: https://www.lifewire.com/thmb/INF6SYasZPz8DbBoNXqU2flP540=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/before-you-buy-a-video-projector-1847845-v3-ED-8a08e03f2cfc4835a13872618bd4ad00.png
+thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb90774e1fcb8b0eea83e6c871.png
 ---
 
 ## Top 10 3D Text Animation Templates
@@ -31,7 +31,7 @@ To answer this request, we've compiled a guide that not only teaches you how to 
 
 #### In this article
 
-01 [Top 10 3D Text Animation Templates ](#Part 1)
+01 [Top 10 3D Text Animation Templates](#Part 1)
 
 02 [How Do I Make 3D Text in After Effects?](#Part 2)
 
@@ -163,7 +163,7 @@ To answer this request, we've compiled a guide that not only teaches you how to 
 
 #### In this article
 
-01 [Top 10 3D Text Animation Templates ](#Part 1)
+01 [Top 10 3D Text Animation Templates](#Part 1)
 
 02 [How Do I Make 3D Text in After Effects?](#Part 2)
 
@@ -295,7 +295,7 @@ To answer this request, we've compiled a guide that not only teaches you how to 
 
 #### In this article
 
-01 [Top 10 3D Text Animation Templates ](#Part 1)
+01 [Top 10 3D Text Animation Templates](#Part 1)
 
 02 [How Do I Make 3D Text in After Effects?](#Part 2)
 
@@ -427,7 +427,7 @@ To answer this request, we've compiled a guide that not only teaches you how to 
 
 #### In this article
 
-01 [Top 10 3D Text Animation Templates ](#Part 1)
+01 [Top 10 3D Text Animation Templates](#Part 1)
 
 02 [How Do I Make 3D Text in After Effects?](#Part 2)
 

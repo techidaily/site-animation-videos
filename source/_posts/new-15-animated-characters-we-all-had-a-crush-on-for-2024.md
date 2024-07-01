@@ -1,7 +1,7 @@
 ---
 title: New 15 Animated Characters We All Had A Crush On for 2024
-date: 2024-05-19T03:05:21.402Z
-updated: 2024-05-20T03:05:21.402Z
+date: 2024-06-30T12:28:17.372Z
+updated: 2024-07-01T12:28:17.372Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New 15 Animated Characters We All Had A Crush On for 2024
 excerpt: This Article Describes New 15 Animated Characters We All Had A Crush On for 2024
 keywords: 15 forgotten cartoon characters of all time you used to love,10 cartoon character makers to create animated characters,make my own animated character,how to guide make animation characters with the best animated character creators,animated characters,adobe animate character tutorial,animated character creator
-thumbnail: https://www.lifewire.com/thmb/EAqZr-HjkZo5i0jwoEEUqZxRCpc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1437209125-b47ae60035f248e2b01b781f50f919c1.jpg
+thumbnail: https://thmb.techidaily.com/6190a0016cd0db6cebefe5acaadd207d01333c2584c8d35c887e62fae8bb62c7.jpg
 ---
 
 ## 15 Animated Characters We All Had A Crush On
@@ -1131,7 +1131,7 @@ Explain Ninja is a popular Poland-based **2D animation company** that offers a w
 
 The team can create different types of marketing videos including whitepaper animations, explainer videos, conventional 2D animations, etc. Basically, if you have the desired budget and are looking for a professional video production company, Explain Ninja is the right answer.
 
-### 02**[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 02** Wondershare Filmora Video Editor
 
 **Minimum Project Size: $100 (Depends on the type of video you want to edit)**
 
@@ -1335,7 +1335,7 @@ Explain Ninja is a popular Poland-based **2D animation company** that offers a w
 
 The team can create different types of marketing videos including whitepaper animations, explainer videos, conventional 2D animations, etc. Basically, if you have the desired budget and are looking for a professional video production company, Explain Ninja is the right answer.
 
-### 02**[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 02** Wondershare Filmora Video Editor
 
 **Minimum Project Size: $100 (Depends on the type of video you want to edit)**
 
@@ -1539,7 +1539,7 @@ Explain Ninja is a popular Poland-based **2D animation company** that offers a w
 
 The team can create different types of marketing videos including whitepaper animations, explainer videos, conventional 2D animations, etc. Basically, if you have the desired budget and are looking for a professional video production company, Explain Ninja is the right answer.
 
-### 02**[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 02** Wondershare Filmora Video Editor
 
 **Minimum Project Size: $100 (Depends on the type of video you want to edit)**
 
@@ -1743,7 +1743,7 @@ Explain Ninja is a popular Poland-based **2D animation company** that offers a w
 
 The team can create different types of marketing videos including whitepaper animations, explainer videos, conventional 2D animations, etc. Basically, if you have the desired budget and are looking for a professional video production company, Explain Ninja is the right answer.
 
-### 02**[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+### 02** Wondershare Filmora Video Editor
 
 **Minimum Project Size: $100 (Depends on the type of video you want to edit)**
 
@@ -1969,7 +1969,7 @@ This sketch features different facial expressions made by older men and women.
 
 This photo shows the difference between squashing and stretching the face and provides references for extreme squash and extreme stretch.
 
-![top 10 cartoon face examples 02 ](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
+![top 10 cartoon face examples 02](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
 
 ### 03Dramatic Expressions
 
@@ -2149,7 +2149,7 @@ This sketch features different facial expressions made by older men and women.
 
 This photo shows the difference between squashing and stretching the face and provides references for extreme squash and extreme stretch.
 
-![top 10 cartoon face examples 02 ](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
+![top 10 cartoon face examples 02](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
 
 ### 03Dramatic Expressions
 
@@ -2329,7 +2329,7 @@ This sketch features different facial expressions made by older men and women.
 
 This photo shows the difference between squashing and stretching the face and provides references for extreme squash and extreme stretch.
 
-![top 10 cartoon face examples 02 ](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
+![top 10 cartoon face examples 02](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
 
 ### 03Dramatic Expressions
 
@@ -2509,7 +2509,7 @@ This sketch features different facial expressions made by older men and women.
 
 This photo shows the difference between squashing and stretching the face and provides references for extreme squash and extreme stretch.
 
-![top 10 cartoon face examples 02 ](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
+![top 10 cartoon face examples 02](https://images.wondershare.com/filmora/article-images/2022/04/how-to-draw-cartoon-faces-4.jpg)
 
 ### 03Dramatic Expressions
 
@@ -2703,7 +2703,7 @@ GIF created using the video will be sent to your contact.
 
 ![Create Customised GIF On WhatsApp](https://images.wondershare.com/filmora/article-images/2022/02/step-by-step-guide-to-send-whatsapp-on-android-03.jpg)
 
-## Part 3 Create professional-looking GIF using **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+## Part 3 Create professional-looking GIF using ** Wondershare Filmora Video Editor
 
 Though WhatsApp allows creating GIFs using videos and images, the options for customizations are not there. So, to facilitate you creating professional-looking GIFs in no time, we suggest using Wondershare Filmora. Images and videos can be added to this versatile Windows and Mac-based tool for creating artistic animations. There are multiple options for customizing the file like adding elements, sound, text, and more.
 
@@ -2793,7 +2793,7 @@ GIF created using the video will be sent to your contact.
 
 ![Create Customised GIF On WhatsApp](https://images.wondershare.com/filmora/article-images/2022/02/step-by-step-guide-to-send-whatsapp-on-android-03.jpg)
 
-## Part 3 Create professional-looking GIF using **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+## Part 3 Create professional-looking GIF using ** Wondershare Filmora Video Editor
 
 Though WhatsApp allows creating GIFs using videos and images, the options for customizations are not there. So, to facilitate you creating professional-looking GIFs in no time, we suggest using Wondershare Filmora. Images and videos can be added to this versatile Windows and Mac-based tool for creating artistic animations. There are multiple options for customizing the file like adding elements, sound, text, and more.
 
@@ -2883,7 +2883,7 @@ GIF created using the video will be sent to your contact.
 
 ![Create Customised GIF On WhatsApp](https://images.wondershare.com/filmora/article-images/2022/02/step-by-step-guide-to-send-whatsapp-on-android-03.jpg)
 
-## Part 3 Create professional-looking GIF using **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+## Part 3 Create professional-looking GIF using ** Wondershare Filmora Video Editor
 
 Though WhatsApp allows creating GIFs using videos and images, the options for customizations are not there. So, to facilitate you creating professional-looking GIFs in no time, we suggest using Wondershare Filmora. Images and videos can be added to this versatile Windows and Mac-based tool for creating artistic animations. There are multiple options for customizing the file like adding elements, sound, text, and more.
 
@@ -2973,7 +2973,7 @@ GIF created using the video will be sent to your contact.
 
 ![Create Customised GIF On WhatsApp](https://images.wondershare.com/filmora/article-images/2022/02/step-by-step-guide-to-send-whatsapp-on-android-03.jpg)
 
-## Part 3 Create professional-looking GIF using **[Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)**
+## Part 3 Create professional-looking GIF using ** Wondershare Filmora Video Editor
 
 Though WhatsApp allows creating GIFs using videos and images, the options for customizations are not there. So, to facilitate you creating professional-looking GIFs in no time, we suggest using Wondershare Filmora. Images and videos can be added to this versatile Windows and Mac-based tool for creating artistic animations. There are multiple options for customizing the file like adding elements, sound, text, and more.
 
@@ -3185,7 +3185,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 
@@ -3351,7 +3351,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 
@@ -3517,7 +3517,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 
@@ -3683,7 +3683,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 **AI Portrait – The best feature of Wondershare Filmora for gameplay editing**
 

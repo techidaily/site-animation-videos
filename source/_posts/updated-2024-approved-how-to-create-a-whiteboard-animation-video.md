@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved How to Create a Whiteboard Animation Video
-date: 2024-05-19T03:05:43.777Z
-updated: 2024-05-20T03:05:43.777Z
+date: 2024-06-30T12:27:44.248Z
+updated: 2024-07-01T12:27:44.248Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated 2024 Approved How to Create a Whiteboard Animation Video
 excerpt: This Article Describes Updated 2024 Approved How to Create a Whiteboard Animation Video
 keywords: ai animation how to create a whiteboard video step by step,whiteboard animation video,how to create animated video on canva,make whiteboard animation video,how to create a whiteboard video step by step,how to make whiteboard animation videos,how to create benime whiteboard animation in android
-thumbnail: https://www.lifewire.com/thmb/xk4sG4I9EUDVvTCEXSRMmg2yPjw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/superbowl_dmytroAksonov_Getty-5a775189119fa8003752b313.jpg
+thumbnail: https://thmb.techidaily.com/6d060e78cf4821c16957dc0af5764350800050d4c706e3284222e7ce2389a41f.jpg
 ---
 
 ## How to Create a Whiteboard Animation Video
@@ -301,7 +301,7 @@ Stitch is a bulletproof and fireproof alien from the Lilo and Stitch animations.
 
 **Step 10**: Use different shades of blue to colour Stitch.
 
-![colour Stitch ](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
+![colour Stitch](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
 
 ## Part 2 Disney-Inspired Ipad Drawing Class for Beginner
 
@@ -505,7 +505,7 @@ Stitch is a bulletproof and fireproof alien from the Lilo and Stitch animations.
 
 **Step 10**: Use different shades of blue to colour Stitch.
 
-![colour Stitch ](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
+![colour Stitch](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
 
 ## Part 2 Disney-Inspired Ipad Drawing Class for Beginner
 
@@ -709,7 +709,7 @@ Stitch is a bulletproof and fireproof alien from the Lilo and Stitch animations.
 
 **Step 10**: Use different shades of blue to colour Stitch.
 
-![colour Stitch ](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
+![colour Stitch](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
 
 ## Part 2 Disney-Inspired Ipad Drawing Class for Beginner
 
@@ -913,7 +913,7 @@ Stitch is a bulletproof and fireproof alien from the Lilo and Stitch animations.
 
 **Step 10**: Use different shades of blue to colour Stitch.
 
-![colour Stitch ](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
+![colour Stitch](https://images.wondershare.com/filmora/article-images/2022/04/learn-disney-cartoon-drawing-27.jpg)
 
 ## Part 2 Disney-Inspired Ipad Drawing Class for Beginner
 
@@ -1600,7 +1600,7 @@ You would be excited if you design your favorite GIFs to share with your friends
 * [**9\. Tumblr**](#part9)
 * [**10\. MotionElements**](#part9)
 
-#### 1. [Giphy](https://giphy.com/explore/free-download)
+#### 1. Giphy
 
 It is an online tool to create and upload GIFs. There are built-in templates for a free download without any difficulty. You can create theme-based GIFs to suit the appropriate situation as per your needs.
 
@@ -1618,7 +1618,7 @@ It is an online tool to create and upload GIFs. There are built-in templates for
 * You can upload your favorite clicks into the timeline to animate
 * It allows you to download the images and videos from the online platform using the URLs. It permits links from YouTube and Vimeo.
 
-#### 2. [Gifer](https://gifer.com/en/)
+#### 2. Gifer
 
 In this platform, you can create funny and interactive GIFs as per your needs effortlessly. Make use of this online environment to bring creativity to the words you wish to convey to your dear ones.
 
@@ -1636,7 +1636,7 @@ In this platform, you can create funny and interactive GIFs as per your needs ef
 * Easy to upload the GIFs from your local drive to animate
 * The image files loads into the timeline quickly despite the file size
 
-#### 3. [AnimatedImages.org](https://www.animatedimages.org/)
+#### 3. AnimatedImages.org
 
 In this platform, you can find an ocean of animated GIFs flooded with stunning collections to suit your requirements without any compromises.
 
@@ -1654,7 +1654,7 @@ In this platform, you can find an ocean of animated GIFs flooded with stunning c
 * The GIFs are listed out in an organized way for easy access to the users
 * You can make free GIFs download effortlessly at this environment
 
-#### 4. [Reaction GIFs](https://www.reactiongifs.com/)
+#### 4. Reaction GIFs
 
 This online environment comprises of all types of reaction GIFs to use during appropriate situations. It is an exclusive platform portraying only the Reaction emotions.
 
@@ -1672,7 +1672,7 @@ This online environment comprises of all types of reaction GIFs to use during ap
 * You can find all types of reaction GIFs like Yes, No, Love, etc
 * It has amazing collections of reaction GIFs in an organized manner
 
-#### 5. [Imgflip](https://imgflip.com/)
+#### 5. Imgflip
 
 It is an online tool to create attractive GIFs for your needs. It is enough if you upload the images, arrange it, adjust the options, and generate the desired GIFs in no time.
 
@@ -1690,7 +1690,7 @@ It is an online tool to create attractive GIFs for your needs. It is enough if y
 * Quickly share the created GIF link to the social media network just by a single link
 * Effortlessly upload the desired file to create stunning GIFs as per your needs.
 
-#### 6. [GIFbin](https://www.gifbin.com/)
+#### 6. GIFbin
 
 In this online environment, you can download the built-in GIF templates of your choice in no time. The GIFs are available as a random collection and you can choose the right fit quickly according to your needs.
 
@@ -1707,7 +1707,7 @@ In this online environment, you can download the built-in GIF templates of your 
 * Excellent collections of built-in GIFs for free access
 * Choose the desired tab named as newest, top-rated and viewed to access the desired GIFs
 
-#### 7. [Reddit](https://www.reddit.com/r/gifs/)
+#### 7. Reddit
 
 A good collection of GIFs funnily portraying trendy stuff. Many GIFs are available on this platform to target hot happenings around the globe.
 
@@ -1725,7 +1725,7 @@ A good collection of GIFs funnily portraying trendy stuff. Many GIFs are availab
 * Mostly used by social media users
 * Easy to share your favorite GIFs in no time
 
-#### 8. [Gfycat](https://gfycat.com/)
+#### 8. Gfycat
 
 In this online environment, you can create and download attractive GIFs according to your needs. This platform provides audio effects to the created GIFs to make the animation livelier.
 
@@ -1743,7 +1743,7 @@ In this online environment, you can create and download attractive GIFs accordin
 * Download the built-in GIFs easily from this website depending on your requirement
 * you can upload the image from your local drive or you can paste the link from YouTube, Facebook, Twitch, Vimeo, Instagram, etc.
 
-#### 9. [Tumblr](https://www.tumblr.com/explore/gifs)
+#### 9. Tumblr
 
 It is an excellent environment comprising trendy animated GIFs which suits your needs optimally. Download the animated link in your drive for free and use it on various social media on the chat platform effortlessly.
 
@@ -1761,7 +1761,7 @@ It is an excellent environment comprising trendy animated GIFs which suits your 
 * You can also find audio related animated GIFs as templates in this online platform
 * Easily reach out for the desired animated GIFs with a reliable search option.
 
-#### 10. [MotionElements](https://www.motionelements.com/free/gifs)
+#### 10. MotionElements
 
 It is a commercial platform with built-in animated GIFs collection displayed in an organized way. You can make a quick and uninterrupted download without any issues.
 
@@ -1881,7 +1881,7 @@ You would be excited if you design your favorite GIFs to share with your friends
 * [**9\. Tumblr**](#part9)
 * [**10\. MotionElements**](#part9)
 
-#### 1. [Giphy](https://giphy.com/explore/free-download)
+#### 1. Giphy
 
 It is an online tool to create and upload GIFs. There are built-in templates for a free download without any difficulty. You can create theme-based GIFs to suit the appropriate situation as per your needs.
 
@@ -1899,7 +1899,7 @@ It is an online tool to create and upload GIFs. There are built-in templates for
 * You can upload your favorite clicks into the timeline to animate
 * It allows you to download the images and videos from the online platform using the URLs. It permits links from YouTube and Vimeo.
 
-#### 2. [Gifer](https://gifer.com/en/)
+#### 2. Gifer
 
 In this platform, you can create funny and interactive GIFs as per your needs effortlessly. Make use of this online environment to bring creativity to the words you wish to convey to your dear ones.
 
@@ -1917,7 +1917,7 @@ In this platform, you can create funny and interactive GIFs as per your needs ef
 * Easy to upload the GIFs from your local drive to animate
 * The image files loads into the timeline quickly despite the file size
 
-#### 3. [AnimatedImages.org](https://www.animatedimages.org/)
+#### 3. AnimatedImages.org
 
 In this platform, you can find an ocean of animated GIFs flooded with stunning collections to suit your requirements without any compromises.
 
@@ -1935,7 +1935,7 @@ In this platform, you can find an ocean of animated GIFs flooded with stunning c
 * The GIFs are listed out in an organized way for easy access to the users
 * You can make free GIFs download effortlessly at this environment
 
-#### 4. [Reaction GIFs](https://www.reactiongifs.com/)
+#### 4. Reaction GIFs
 
 This online environment comprises of all types of reaction GIFs to use during appropriate situations. It is an exclusive platform portraying only the Reaction emotions.
 
@@ -1953,7 +1953,7 @@ This online environment comprises of all types of reaction GIFs to use during ap
 * You can find all types of reaction GIFs like Yes, No, Love, etc
 * It has amazing collections of reaction GIFs in an organized manner
 
-#### 5. [Imgflip](https://imgflip.com/)
+#### 5. Imgflip
 
 It is an online tool to create attractive GIFs for your needs. It is enough if you upload the images, arrange it, adjust the options, and generate the desired GIFs in no time.
 
@@ -1971,7 +1971,7 @@ It is an online tool to create attractive GIFs for your needs. It is enough if y
 * Quickly share the created GIF link to the social media network just by a single link
 * Effortlessly upload the desired file to create stunning GIFs as per your needs.
 
-#### 6. [GIFbin](https://www.gifbin.com/)
+#### 6. GIFbin
 
 In this online environment, you can download the built-in GIF templates of your choice in no time. The GIFs are available as a random collection and you can choose the right fit quickly according to your needs.
 
@@ -1988,7 +1988,7 @@ In this online environment, you can download the built-in GIF templates of your 
 * Excellent collections of built-in GIFs for free access
 * Choose the desired tab named as newest, top-rated and viewed to access the desired GIFs
 
-#### 7. [Reddit](https://www.reddit.com/r/gifs/)
+#### 7. Reddit
 
 A good collection of GIFs funnily portraying trendy stuff. Many GIFs are available on this platform to target hot happenings around the globe.
 
@@ -2006,7 +2006,7 @@ A good collection of GIFs funnily portraying trendy stuff. Many GIFs are availab
 * Mostly used by social media users
 * Easy to share your favorite GIFs in no time
 
-#### 8. [Gfycat](https://gfycat.com/)
+#### 8. Gfycat
 
 In this online environment, you can create and download attractive GIFs according to your needs. This platform provides audio effects to the created GIFs to make the animation livelier.
 
@@ -2024,7 +2024,7 @@ In this online environment, you can create and download attractive GIFs accordin
 * Download the built-in GIFs easily from this website depending on your requirement
 * you can upload the image from your local drive or you can paste the link from YouTube, Facebook, Twitch, Vimeo, Instagram, etc.
 
-#### 9. [Tumblr](https://www.tumblr.com/explore/gifs)
+#### 9. Tumblr
 
 It is an excellent environment comprising trendy animated GIFs which suits your needs optimally. Download the animated link in your drive for free and use it on various social media on the chat platform effortlessly.
 
@@ -2042,7 +2042,7 @@ It is an excellent environment comprising trendy animated GIFs which suits your 
 * You can also find audio related animated GIFs as templates in this online platform
 * Easily reach out for the desired animated GIFs with a reliable search option.
 
-#### 10. [MotionElements](https://www.motionelements.com/free/gifs)
+#### 10. MotionElements
 
 It is a commercial platform with built-in animated GIFs collection displayed in an organized way. You can make a quick and uninterrupted download without any issues.
 
@@ -2162,7 +2162,7 @@ You would be excited if you design your favorite GIFs to share with your friends
 * [**9\. Tumblr**](#part9)
 * [**10\. MotionElements**](#part9)
 
-#### 1. [Giphy](https://giphy.com/explore/free-download)
+#### 1. Giphy
 
 It is an online tool to create and upload GIFs. There are built-in templates for a free download without any difficulty. You can create theme-based GIFs to suit the appropriate situation as per your needs.
 
@@ -2180,7 +2180,7 @@ It is an online tool to create and upload GIFs. There are built-in templates for
 * You can upload your favorite clicks into the timeline to animate
 * It allows you to download the images and videos from the online platform using the URLs. It permits links from YouTube and Vimeo.
 
-#### 2. [Gifer](https://gifer.com/en/)
+#### 2. Gifer
 
 In this platform, you can create funny and interactive GIFs as per your needs effortlessly. Make use of this online environment to bring creativity to the words you wish to convey to your dear ones.
 
@@ -2198,7 +2198,7 @@ In this platform, you can create funny and interactive GIFs as per your needs ef
 * Easy to upload the GIFs from your local drive to animate
 * The image files loads into the timeline quickly despite the file size
 
-#### 3. [AnimatedImages.org](https://www.animatedimages.org/)
+#### 3. AnimatedImages.org
 
 In this platform, you can find an ocean of animated GIFs flooded with stunning collections to suit your requirements without any compromises.
 
@@ -2216,7 +2216,7 @@ In this platform, you can find an ocean of animated GIFs flooded with stunning c
 * The GIFs are listed out in an organized way for easy access to the users
 * You can make free GIFs download effortlessly at this environment
 
-#### 4. [Reaction GIFs](https://www.reactiongifs.com/)
+#### 4. Reaction GIFs
 
 This online environment comprises of all types of reaction GIFs to use during appropriate situations. It is an exclusive platform portraying only the Reaction emotions.
 
@@ -2234,7 +2234,7 @@ This online environment comprises of all types of reaction GIFs to use during ap
 * You can find all types of reaction GIFs like Yes, No, Love, etc
 * It has amazing collections of reaction GIFs in an organized manner
 
-#### 5. [Imgflip](https://imgflip.com/)
+#### 5. Imgflip
 
 It is an online tool to create attractive GIFs for your needs. It is enough if you upload the images, arrange it, adjust the options, and generate the desired GIFs in no time.
 
@@ -2252,7 +2252,7 @@ It is an online tool to create attractive GIFs for your needs. It is enough if y
 * Quickly share the created GIF link to the social media network just by a single link
 * Effortlessly upload the desired file to create stunning GIFs as per your needs.
 
-#### 6. [GIFbin](https://www.gifbin.com/)
+#### 6. GIFbin
 
 In this online environment, you can download the built-in GIF templates of your choice in no time. The GIFs are available as a random collection and you can choose the right fit quickly according to your needs.
 
@@ -2269,7 +2269,7 @@ In this online environment, you can download the built-in GIF templates of your 
 * Excellent collections of built-in GIFs for free access
 * Choose the desired tab named as newest, top-rated and viewed to access the desired GIFs
 
-#### 7. [Reddit](https://www.reddit.com/r/gifs/)
+#### 7. Reddit
 
 A good collection of GIFs funnily portraying trendy stuff. Many GIFs are available on this platform to target hot happenings around the globe.
 
@@ -2287,7 +2287,7 @@ A good collection of GIFs funnily portraying trendy stuff. Many GIFs are availab
 * Mostly used by social media users
 * Easy to share your favorite GIFs in no time
 
-#### 8. [Gfycat](https://gfycat.com/)
+#### 8. Gfycat
 
 In this online environment, you can create and download attractive GIFs according to your needs. This platform provides audio effects to the created GIFs to make the animation livelier.
 
@@ -2305,7 +2305,7 @@ In this online environment, you can create and download attractive GIFs accordin
 * Download the built-in GIFs easily from this website depending on your requirement
 * you can upload the image from your local drive or you can paste the link from YouTube, Facebook, Twitch, Vimeo, Instagram, etc.
 
-#### 9. [Tumblr](https://www.tumblr.com/explore/gifs)
+#### 9. Tumblr
 
 It is an excellent environment comprising trendy animated GIFs which suits your needs optimally. Download the animated link in your drive for free and use it on various social media on the chat platform effortlessly.
 
@@ -2323,7 +2323,7 @@ It is an excellent environment comprising trendy animated GIFs which suits your 
 * You can also find audio related animated GIFs as templates in this online platform
 * Easily reach out for the desired animated GIFs with a reliable search option.
 
-#### 10. [MotionElements](https://www.motionelements.com/free/gifs)
+#### 10. MotionElements
 
 It is a commercial platform with built-in animated GIFs collection displayed in an organized way. You can make a quick and uninterrupted download without any issues.
 
@@ -2443,7 +2443,7 @@ You would be excited if you design your favorite GIFs to share with your friends
 * [**9\. Tumblr**](#part9)
 * [**10\. MotionElements**](#part9)
 
-#### 1. [Giphy](https://giphy.com/explore/free-download)
+#### 1. Giphy
 
 It is an online tool to create and upload GIFs. There are built-in templates for a free download without any difficulty. You can create theme-based GIFs to suit the appropriate situation as per your needs.
 
@@ -2461,7 +2461,7 @@ It is an online tool to create and upload GIFs. There are built-in templates for
 * You can upload your favorite clicks into the timeline to animate
 * It allows you to download the images and videos from the online platform using the URLs. It permits links from YouTube and Vimeo.
 
-#### 2. [Gifer](https://gifer.com/en/)
+#### 2. Gifer
 
 In this platform, you can create funny and interactive GIFs as per your needs effortlessly. Make use of this online environment to bring creativity to the words you wish to convey to your dear ones.
 
@@ -2479,7 +2479,7 @@ In this platform, you can create funny and interactive GIFs as per your needs ef
 * Easy to upload the GIFs from your local drive to animate
 * The image files loads into the timeline quickly despite the file size
 
-#### 3. [AnimatedImages.org](https://www.animatedimages.org/)
+#### 3. AnimatedImages.org
 
 In this platform, you can find an ocean of animated GIFs flooded with stunning collections to suit your requirements without any compromises.
 
@@ -2497,7 +2497,7 @@ In this platform, you can find an ocean of animated GIFs flooded with stunning c
 * The GIFs are listed out in an organized way for easy access to the users
 * You can make free GIFs download effortlessly at this environment
 
-#### 4. [Reaction GIFs](https://www.reactiongifs.com/)
+#### 4. Reaction GIFs
 
 This online environment comprises of all types of reaction GIFs to use during appropriate situations. It is an exclusive platform portraying only the Reaction emotions.
 
@@ -2515,7 +2515,7 @@ This online environment comprises of all types of reaction GIFs to use during ap
 * You can find all types of reaction GIFs like Yes, No, Love, etc
 * It has amazing collections of reaction GIFs in an organized manner
 
-#### 5. [Imgflip](https://imgflip.com/)
+#### 5. Imgflip
 
 It is an online tool to create attractive GIFs for your needs. It is enough if you upload the images, arrange it, adjust the options, and generate the desired GIFs in no time.
 
@@ -2533,7 +2533,7 @@ It is an online tool to create attractive GIFs for your needs. It is enough if y
 * Quickly share the created GIF link to the social media network just by a single link
 * Effortlessly upload the desired file to create stunning GIFs as per your needs.
 
-#### 6. [GIFbin](https://www.gifbin.com/)
+#### 6. GIFbin
 
 In this online environment, you can download the built-in GIF templates of your choice in no time. The GIFs are available as a random collection and you can choose the right fit quickly according to your needs.
 
@@ -2550,7 +2550,7 @@ In this online environment, you can download the built-in GIF templates of your 
 * Excellent collections of built-in GIFs for free access
 * Choose the desired tab named as newest, top-rated and viewed to access the desired GIFs
 
-#### 7. [Reddit](https://www.reddit.com/r/gifs/)
+#### 7. Reddit
 
 A good collection of GIFs funnily portraying trendy stuff. Many GIFs are available on this platform to target hot happenings around the globe.
 
@@ -2568,7 +2568,7 @@ A good collection of GIFs funnily portraying trendy stuff. Many GIFs are availab
 * Mostly used by social media users
 * Easy to share your favorite GIFs in no time
 
-#### 8. [Gfycat](https://gfycat.com/)
+#### 8. Gfycat
 
 In this online environment, you can create and download attractive GIFs according to your needs. This platform provides audio effects to the created GIFs to make the animation livelier.
 
@@ -2586,7 +2586,7 @@ In this online environment, you can create and download attractive GIFs accordin
 * Download the built-in GIFs easily from this website depending on your requirement
 * you can upload the image from your local drive or you can paste the link from YouTube, Facebook, Twitch, Vimeo, Instagram, etc.
 
-#### 9. [Tumblr](https://www.tumblr.com/explore/gifs)
+#### 9. Tumblr
 
 It is an excellent environment comprising trendy animated GIFs which suits your needs optimally. Download the animated link in your drive for free and use it on various social media on the chat platform effortlessly.
 
@@ -2604,7 +2604,7 @@ It is an excellent environment comprising trendy animated GIFs which suits your 
 * You can also find audio related animated GIFs as templates in this online platform
 * Easily reach out for the desired animated GIFs with a reliable search option.
 
-#### 10. [MotionElements](https://www.motionelements.com/free/gifs)
+#### 10. MotionElements
 
 It is a commercial platform with built-in animated GIFs collection displayed in an organized way. You can make a quick and uninterrupted download without any issues.
 

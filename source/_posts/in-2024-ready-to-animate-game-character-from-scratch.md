@@ -1,7 +1,7 @@
 ---
 title: In 2024, Ready to Animate Game Character From Scratch?
-date: 2024-05-19T03:04:36.352Z
-updated: 2024-05-20T03:04:36.352Z
+date: 2024-06-30T12:27:30.671Z
+updated: 2024-07-01T12:27:30.671Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes In 2024, Ready to Animate Game Character From Scratch?
 excerpt: This Article Describes In 2024, Ready to Animate Game Character From Scratch?
 keywords: animated character creator,is it that easy to make my own animated character,are you ready to animate game character from scratch,adobe animate character tutorial,how to animate picture online without learning from scratch,how to guide secret shortcut to adobe animate character tutorial,10 cartoon character makers to create animated characters
-thumbnail: https://www.lifewire.com/thmb/crqf7aw9F6RC6VSVWVhQdSAcGQg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/duet-c82ee94b39e24788bcfd51d1eea24288.jpg
+thumbnail: https://thmb.techidaily.com/cc4de72d7f182f924611ffcdd9be6d67698446b35913acbf3e4fc8c5af445646.jpg
 ---
 
 ## Ready to Animate Game Character From Scratch?

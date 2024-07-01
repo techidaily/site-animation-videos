@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, 12 Captivating Websites with Triggered Animate on Scroll Examples
-date: 2024-05-19T03:05:11.975Z
-updated: 2024-05-20T03:05:11.975Z
+date: 2024-06-30T12:27:22.017Z
+updated: 2024-07-01T12:27:22.017Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated In 2024, 12 Captivating Websites with Triggered Animate on Scroll Examples
 excerpt: This Article Describes Updated In 2024, 12 Captivating Websites with Triggered Animate on Scroll Examples
 keywords: fuel your creativity with 10 awesome collection of 2d animation examples,best 10 animated templates in canva,12 captivating websites with triggered animate on scroll examples,animate website on scroll,5 websites with animated logos that can catch your eyes,10 classical animated cartoon types with examples,how to liven up your animate website on scroll
-thumbnail: https://www.lifewire.com/thmb/YPMhKL59WGdTUpxCrpaB_OS--cc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-set-up-speech-to-text-on-android-0-928c48ab121248f9aa543a136d971f9a.jpg
+thumbnail: https://thmb.techidaily.com/2e5cadcabaa5bc146e9286cd6ccf5e30c43742afdff538e1080a5add013b39bf.jpg
 ---
 
 ## 12 Captivating Websites with Triggered Animate on Scroll Examples
@@ -1943,19 +1943,19 @@ The process to create an **animated travel map** with Pictramap is given below:
 
 Launch your favorite web browser, go to <https://www.pictramap.com/>, click **Create yours now, it’s free**, and sign up to Pictramap using your preferred method. When you are on the **Dashboard**, enter a name in the field available under the **My Projects** section, and click **Create** to create a new project (the animated map).
 
-![create travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
+![create travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
 
 **Step 2: Define the Locations and Method of Commute**
 
 On the map, right-click the location you want to start your journey from, enter the name of the location or any other significant title, and click **Add**. Click the location marker, click the **Travel Mode** icon, and select your preferred mode of traveling. Repeat this process to mark the destination location as well.
 
-![edit travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
+![edit travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
 
 **Step 3: Preview the Animation**
 
 Click the **View Animation** button from the upper-right corner of the page to see the **animated travel map**.
 
-![preview created travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
+![preview created travel map video with pictramap](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
 
 ### Downsides of Using Pictramap to Create Animated Travel Map Video
 
@@ -2258,19 +2258,19 @@ The process to create an **animated travel map** with Pictramap is given below:
 
 Launch your favorite web browser, go to <https://www.pictramap.com/>, click **Create yours now, it’s free**, and sign up to Pictramap using your preferred method. When you are on the **Dashboard**, enter a name in the field available under the **My Projects** section, and click **Create** to create a new project (the animated map).
 
-![create travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
+![create travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
 
 **Step 2: Define the Locations and Method of Commute**
 
 On the map, right-click the location you want to start your journey from, enter the name of the location or any other significant title, and click **Add**. Click the location marker, click the **Travel Mode** icon, and select your preferred mode of traveling. Repeat this process to mark the destination location as well.
 
-![edit travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
+![edit travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
 
 **Step 3: Preview the Animation**
 
 Click the **View Animation** button from the upper-right corner of the page to see the **animated travel map**.
 
-![preview created travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
+![preview created travel map video with pictramap](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
 
 ### Downsides of Using Pictramap to Create Animated Travel Map Video
 
@@ -2573,19 +2573,19 @@ The process to create an **animated travel map** with Pictramap is given below:
 
 Launch your favorite web browser, go to <https://www.pictramap.com/>, click **Create yours now, it’s free**, and sign up to Pictramap using your preferred method. When you are on the **Dashboard**, enter a name in the field available under the **My Projects** section, and click **Create** to create a new project (the animated map).
 
-![create travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
+![create travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
 
 **Step 2: Define the Locations and Method of Commute**
 
 On the map, right-click the location you want to start your journey from, enter the name of the location or any other significant title, and click **Add**. Click the location marker, click the **Travel Mode** icon, and select your preferred mode of traveling. Repeat this process to mark the destination location as well.
 
-![edit travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
+![edit travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
 
 **Step 3: Preview the Animation**
 
 Click the **View Animation** button from the upper-right corner of the page to see the **animated travel map**.
 
-![preview created travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
+![preview created travel map video with pictramap](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
 
 ### Downsides of Using Pictramap to Create Animated Travel Map Video
 
@@ -2888,19 +2888,19 @@ The process to create an **animated travel map** with Pictramap is given below:
 
 Launch your favorite web browser, go to <https://www.pictramap.com/>, click **Create yours now, it’s free**, and sign up to Pictramap using your preferred method. When you are on the **Dashboard**, enter a name in the field available under the **My Projects** section, and click **Create** to create a new project (the animated map).
 
-![create travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
+![create travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-interface.jpg)
 
 **Step 2: Define the Locations and Method of Commute**
 
 On the map, right-click the location you want to start your journey from, enter the name of the location or any other significant title, and click **Add**. Click the location marker, click the **Travel Mode** icon, and select your preferred mode of traveling. Repeat this process to mark the destination location as well.
 
-![edit travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
+![edit travel map video with pictramap](https://images.wondershare.com/filmora/article-images/pictramap-travel-mode-edit.jpg)
 
 **Step 3: Preview the Animation**
 
 Click the **View Animation** button from the upper-right corner of the page to see the **animated travel map**.
 
-![preview created travel map video with pictramap ](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
+![preview created travel map video with pictramap](https://images.wondershare.com/filmora/article-images/preview-animated-travel-map-pictramap.jpg)
 
 ### Downsides of Using Pictramap to Create Animated Travel Map Video
 
