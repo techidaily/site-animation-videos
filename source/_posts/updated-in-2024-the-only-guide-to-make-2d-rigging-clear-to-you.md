@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, The Only Guide to Make 2D Rigging Clear to You
-date: 2024-05-19T03:05:13.646Z
-updated: 2024-05-20T03:05:13.646Z
+date: 2024-07-08T03:21:08.239Z
+updated: 2024-07-09T03:21:08.239Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated In 2024, The Only Guide to Make 2D Rigging Clear to You
 excerpt: This Article Describes Updated In 2024, The Only Guide to Make 2D Rigging Clear to You
 keywords: the only guide youll ever need to learn that make 2d rigging clear to you,ways to make sure you get the most up to date cartoon character design tips,learn simple blender rigging in only 2 minutes,learn how to make your characters interactive in unity animation rigging,the only guide youll ever need to learn about gif video downloader,ideas that will help you out in learning how to send whatsapp animated gifs,10 2d3d animation tips tricks to bring new ideas to you
-thumbnail: https://www.lifewire.com/thmb/85rwStNr21lvFIjCfmY8ErdogYI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/wimbledonlivestream-c22d5eefbf8f40e9b25ba4cab1734ece.jpg
+thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c12bd8c02f2b01f747786c25.jpg
 ---
 
 ## The Only Guide to Make 2D Rigging Clear to You

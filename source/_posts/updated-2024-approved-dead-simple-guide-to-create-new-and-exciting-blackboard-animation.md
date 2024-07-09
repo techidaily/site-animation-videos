@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved Dead Simple Guide to Create New and Exciting Blackboard Animation
-date: 2024-05-19T03:05:31.231Z
-updated: 2024-05-20T03:05:31.231Z
+date: 2024-07-08T03:21:18.212Z
+updated: 2024-07-09T03:21:18.212Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated 2024 Approved Dead Simple Guide to Create New and Exciting Blackboard Animation
 excerpt: This Article Describes Updated 2024 Approved Dead Simple Guide to Create New and Exciting Blackboard Animation
 keywords: how to guide make animation characters with the best animated character creators,how to obtain and create animated gif icons like a pro,how to create benime whiteboard animation in android,dead simple guide to create new and exciting blackboard animation,ai animation how to create a whiteboard video step by step,the definitive guide to whiteboard animation,interesting fundamentals and ultimate guide to animated characters drawings
-thumbnail: https://www.lifewire.com/thmb/6UZHTeyuNkJhbDQGbXCRwhK1TEI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1218764238-30613399ad1b4cffab4ab474184b9c88.jpg
+thumbnail: https://thmb.techidaily.com/738343d11636524e97e883ecdfb55ee8c179338e8409002b7334f65b8debc634.jpg
 ---
 
 ## Dead Simple Guide to Create New and Exciting Blackboard Animation
@@ -823,13 +823,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 
@@ -1019,13 +1019,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 
@@ -1215,13 +1215,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 
@@ -1411,13 +1411,13 @@ On the next screen, click "Browse" and load all the JPEG files that you want to 
 
 Wait for pictures to load into Photoshop's timeline. Then, click "Windows" and select "Timeline" from the drop-down menu.
 
-![select timeline ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
+![select timeline](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-03.jpg)
 
 ##### Step 4Make Frames from Layers
 
 Select all the layers and tap the little "Animation" icon. Click "Make Frames from Layers" to proceed further.
 
-![make frames from layers ](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
+![make frames from layers](https://images.wondershare.com/filmora/article-images/2021/5-photoshop-alternatives-to-animate-logo-04.jpg)
 
 ##### Step 5Adjust the time span
 

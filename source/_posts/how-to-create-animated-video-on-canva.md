@@ -1,7 +1,7 @@
 ---
 title: How to Create Animated Video on Canva?
-date: 2024-05-19T03:04:24.450Z
-updated: 2024-05-20T03:04:24.450Z
+date: 2024-07-08T03:21:15.198Z
+updated: 2024-07-09T03:21:15.198Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes How to Create Animated Video on Canva?
 excerpt: This Article Describes How to Create Animated Video on Canva?
 keywords: create animated video canva,creative animation video,how to create animated video on canva,how to create an animated sticky navbar,ai animation how to create a whiteboard video step by step,how to create animated clipart in powerpoint,how to convert animated gif from video
-thumbnail: https://www.lifewire.com/thmb/kq2_pYjL3lBcvd_iWUGjf8TYdhc=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-PS5-PlayStation-5-Gaming-Console-7-1434c073922c4bf59bca47a33013a6dd.jpg
+thumbnail: https://thmb.techidaily.com/778dacc021ae6d569afd3e62fa61bf15ba6fe429d937373bba78e772659986e3.jpg
 ---
 
 ## How to Create Animated Video on Canva?
@@ -371,7 +371,7 @@ It’s vital to pay attention to [constructive criticism](https://www.themuse.co
 
 This 3D animation tip can take years to reach the level you want to when it comes to the animation industry. Even if you don’t receive a great deal of or even any positive feedback, the people offering their comments may simply be trying to help you so you can improve. You may find that the criticism is being made purely because of personal preference on the part of the commentator.
 
-![ criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
+![criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
 
 ### 8\. Take the rhythm in animation
 
@@ -495,7 +495,7 @@ It’s vital to pay attention to [constructive criticism](https://www.themuse.co
 
 This 3D animation tip can take years to reach the level you want to when it comes to the animation industry. Even if you don’t receive a great deal of or even any positive feedback, the people offering their comments may simply be trying to help you so you can improve. You may find that the criticism is being made purely because of personal preference on the part of the commentator.
 
-![ criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
+![criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
 
 ### 8\. Take the rhythm in animation
 
@@ -619,7 +619,7 @@ It’s vital to pay attention to [constructive criticism](https://www.themuse.co
 
 This 3D animation tip can take years to reach the level you want to when it comes to the animation industry. Even if you don’t receive a great deal of or even any positive feedback, the people offering their comments may simply be trying to help you so you can improve. You may find that the criticism is being made purely because of personal preference on the part of the commentator.
 
-![ criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
+![criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
 
 ### 8\. Take the rhythm in animation
 
@@ -743,7 +743,7 @@ It’s vital to pay attention to [constructive criticism](https://www.themuse.co
 
 This 3D animation tip can take years to reach the level you want to when it comes to the animation industry. Even if you don’t receive a great deal of or even any positive feedback, the people offering their comments may simply be trying to help you so you can improve. You may find that the criticism is being made purely because of personal preference on the part of the commentator.
 
-![ criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
+![criticism](https://images.wondershare.com/filmora/article-images/criticism.JPG)
 
 ### 8\. Take the rhythm in animation
 

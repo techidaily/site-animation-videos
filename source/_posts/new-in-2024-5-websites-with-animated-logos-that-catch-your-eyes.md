@@ -1,7 +1,7 @@
 ---
 title: New In 2024, 5 Websites with Animated Logos That Catch Your Eyes
-date: 2024-06-15T11:22:19.222Z
-updated: 2024-06-16T11:22:19.222Z
+date: 2024-07-08T03:21:25.980Z
+updated: 2024-07-09T03:21:25.980Z
 tags: 
   - ai
   - animation videos
@@ -3249,7 +3249,7 @@ Marquee page border effect as the name of this scroll effect tells about it that
 
 Scrollable Agency Portfolio Grid Design effect is specially designed for the agencies. It gives a very creative look to the web pages. You can simply scroll the web pages from the right to the left side and then finally select the content using the call to action buttons.
 
-![Scrollable Agency Portfolio Grid Design ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
+![Scrollable Agency Portfolio Grid Design](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
 
 ### 05 Change Text Color and Side across Image on Scroll
 
@@ -3263,7 +3263,7 @@ This scrolling effect allows you to give a text-changing effect on your web page
 
 Jessandruss is a wedding website developed using scrolling animation. On this website mainly the wedding story of Jess & Russ is presented by the website developers. This is an awesome design of the parallax scrolling where you can see their relationship story.
 
-![Jessandruss Scrolling Effect ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
+![Jessandruss Scrolling Effect](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
 
 ### 02 Fire Watch Game
 
@@ -3395,7 +3395,7 @@ Marquee page border effect as the name of this scroll effect tells about it that
 
 Scrollable Agency Portfolio Grid Design effect is specially designed for the agencies. It gives a very creative look to the web pages. You can simply scroll the web pages from the right to the left side and then finally select the content using the call to action buttons.
 
-![Scrollable Agency Portfolio Grid Design ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
+![Scrollable Agency Portfolio Grid Design](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
 
 ### 05 Change Text Color and Side across Image on Scroll
 
@@ -3409,7 +3409,7 @@ This scrolling effect allows you to give a text-changing effect on your web page
 
 Jessandruss is a wedding website developed using scrolling animation. On this website mainly the wedding story of Jess & Russ is presented by the website developers. This is an awesome design of the parallax scrolling where you can see their relationship story.
 
-![Jessandruss Scrolling Effect ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
+![Jessandruss Scrolling Effect](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
 
 ### 02 Fire Watch Game
 
@@ -3541,7 +3541,7 @@ Marquee page border effect as the name of this scroll effect tells about it that
 
 Scrollable Agency Portfolio Grid Design effect is specially designed for the agencies. It gives a very creative look to the web pages. You can simply scroll the web pages from the right to the left side and then finally select the content using the call to action buttons.
 
-![Scrollable Agency Portfolio Grid Design ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
+![Scrollable Agency Portfolio Grid Design](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
 
 ### 05 Change Text Color and Side across Image on Scroll
 
@@ -3555,7 +3555,7 @@ This scrolling effect allows you to give a text-changing effect on your web page
 
 Jessandruss is a wedding website developed using scrolling animation. On this website mainly the wedding story of Jess & Russ is presented by the website developers. This is an awesome design of the parallax scrolling where you can see their relationship story.
 
-![Jessandruss Scrolling Effect ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
+![Jessandruss Scrolling Effect](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
 
 ### 02 Fire Watch Game
 
@@ -3687,7 +3687,7 @@ Marquee page border effect as the name of this scroll effect tells about it that
 
 Scrollable Agency Portfolio Grid Design effect is specially designed for the agencies. It gives a very creative look to the web pages. You can simply scroll the web pages from the right to the left side and then finally select the content using the call to action buttons.
 
-![Scrollable Agency Portfolio Grid Design ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
+![Scrollable Agency Portfolio Grid Design](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-06.jpg)
 
 ### 05 Change Text Color and Side across Image on Scroll
 
@@ -3701,7 +3701,7 @@ This scrolling effect allows you to give a text-changing effect on your web page
 
 Jessandruss is a wedding website developed using scrolling animation. On this website mainly the wedding story of Jess & Russ is presented by the website developers. This is an awesome design of the parallax scrolling where you can see their relationship story.
 
-![Jessandruss Scrolling Effect ](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
+![Jessandruss Scrolling Effect](https://images.wondershare.com/filmora/article-images/2021/how-to-liven-up-your-animate-website-on-scroll-08.jpg)
 
 ### 02 Fire Watch Game
 

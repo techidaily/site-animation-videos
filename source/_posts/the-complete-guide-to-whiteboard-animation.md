@@ -1,7 +1,7 @@
 ---
 title: The Complete Guide to Whiteboard Animation
-date: 2024-05-19T03:04:28.188Z
-updated: 2024-05-20T03:04:28.188Z
+date: 2024-07-08T03:21:14.185Z
+updated: 2024-07-09T03:21:14.185Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes The Complete Guide to Whiteboard Animation
 excerpt: This Article Describes The Complete Guide to Whiteboard Animation
 keywords: the definitive guide to whiteboard animation,benime whiteboard animation,whiteboard animation,how to create benime whiteboard animation in android,how to make whiteboard animation videos,make whiteboard animation video,whiteboard animation video
-thumbnail: https://www.lifewire.com/thmb/x14UrRTf3--IfQ99R_ewwR4TwWY=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-104288650-cd3f369f8ead449f94d1a1ce6f55c9de.jpg
+thumbnail: https://thmb.techidaily.com/ab68550bed8939ff878aaece9b28e90d8b0465006aaa80a48dab2ef20ecc47cd.jpg
 ---
 
 ## The Complete Guide to Whiteboard Animation

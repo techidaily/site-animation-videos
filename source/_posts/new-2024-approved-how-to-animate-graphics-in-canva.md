@@ -1,7 +1,7 @@
 ---
 title: New 2024 Approved How To Animate Graphics in Canva
-date: 2024-05-19T03:05:35.440Z
-updated: 2024-05-20T03:05:35.440Z
+date: 2024-07-08T03:21:41.353Z
+updated: 2024-07-09T03:21:41.353Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New 2024 Approved How To Animate Graphics in Canva
 excerpt: This Article Describes New 2024 Approved How To Animate Graphics in Canva
 keywords: animate pic in canva,animate graphics canva,how to create animated video on canva,tutorial guide to animate pictures in canva,how to obtain and create animated gif icons like a pro,how to animate graphics in canva,how to create an animated sticky navbar
-thumbnail: https://www.lifewire.com/thmb/KgjSvzxLL1eXMJCNvZxcbrcPyWA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ArtificialIntelligence-Chatbot-6921166a1d9e447eb0251f52694d919a.jpg
+thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36dfc8648cae868f4622fb576a.jpg
 ---
 
 ## How To Animate Graphics in Canva
@@ -2431,7 +2431,7 @@ Create an account or log in. Fill in the text boxes with your email address, use
 
 Tap Log In, enter your email address with password if you already have an account.
 
-![create an account ](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
+![create an account](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
 
 **Step 3: Select a photo or video to use for your GIF**
 
@@ -3017,7 +3017,7 @@ Create an account or log in. Fill in the text boxes with your email address, use
 
 Tap Log In, enter your email address with password if you already have an account.
 
-![create an account ](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
+![create an account](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
 
 **Step 3: Select a photo or video to use for your GIF**
 
@@ -3603,7 +3603,7 @@ Create an account or log in. Fill in the text boxes with your email address, use
 
 Tap Log In, enter your email address with password if you already have an account.
 
-![create an account ](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
+![create an account](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
 
 **Step 3: Select a photo or video to use for your GIF**
 
@@ -4189,7 +4189,7 @@ Create an account or log in. Fill in the text boxes with your email address, use
 
 Tap Log In, enter your email address with password if you already have an account.
 
-![create an account ](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
+![create an account](https://images.wondershare.com/filmora/article-images/2022/03/gif-meme-maker-2.jpg)
 
 **Step 3: Select a photo or video to use for your GIF**
 
@@ -4767,7 +4767,7 @@ It is a process in which an author draws a drawing physically and shows it using
 
 01 [What Is Whiteboard Animation?](#Part 1)
 
-02 [Reasons to Use Whiteboard Animation Videos ](#Part 2)
+02 [Reasons to Use Whiteboard Animation Videos](#Part 2)
 
 03 [Prime Factors That Make Up an Excellent Whiteboard Video](#Part 3)
 
@@ -4931,7 +4931,7 @@ It is a process in which an author draws a drawing physically and shows it using
 
 01 [What Is Whiteboard Animation?](#Part 1)
 
-02 [Reasons to Use Whiteboard Animation Videos ](#Part 2)
+02 [Reasons to Use Whiteboard Animation Videos](#Part 2)
 
 03 [Prime Factors That Make Up an Excellent Whiteboard Video](#Part 3)
 
@@ -5095,7 +5095,7 @@ It is a process in which an author draws a drawing physically and shows it using
 
 01 [What Is Whiteboard Animation?](#Part 1)
 
-02 [Reasons to Use Whiteboard Animation Videos ](#Part 2)
+02 [Reasons to Use Whiteboard Animation Videos](#Part 2)
 
 03 [Prime Factors That Make Up an Excellent Whiteboard Video](#Part 3)
 
@@ -5259,7 +5259,7 @@ It is a process in which an author draws a drawing physically and shows it using
 
 01 [What Is Whiteboard Animation?](#Part 1)
 
-02 [Reasons to Use Whiteboard Animation Videos ](#Part 2)
+02 [Reasons to Use Whiteboard Animation Videos](#Part 2)
 
 03 [Prime Factors That Make Up an Excellent Whiteboard Video](#Part 3)
 

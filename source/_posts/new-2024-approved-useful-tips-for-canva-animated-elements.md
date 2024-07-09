@@ -1,7 +1,7 @@
 ---
 title: New 2024 Approved Useful Tips for Canva Animated Elements
-date: 2024-06-08T05:07:47.790Z
-updated: 2024-06-09T05:07:47.790Z
+date: 2024-07-08T03:21:44.634Z
+updated: 2024-07-09T03:21:44.634Z
 tags: 
   - ai
   - animation videos
@@ -35,7 +35,7 @@ Without further ado, let’s dive into everything you need to know to design ani
 
 01 [What is Canva?](#Part 1)
 
-02 [Animate An Element In Canva ](#Part 2)
+02 [Animate An Element In Canva](#Part 2)
 
 03 [Make Elements Move In Canva](#Part 3)
 
@@ -149,7 +149,7 @@ Without further ado, let’s dive into everything you need to know to design ani
 
 01 [What is Canva?](#Part 1)
 
-02 [Animate An Element In Canva ](#Part 2)
+02 [Animate An Element In Canva](#Part 2)
 
 03 [Make Elements Move In Canva](#Part 3)
 
@@ -263,7 +263,7 @@ Without further ado, let’s dive into everything you need to know to design ani
 
 01 [What is Canva?](#Part 1)
 
-02 [Animate An Element In Canva ](#Part 2)
+02 [Animate An Element In Canva](#Part 2)
 
 03 [Make Elements Move In Canva](#Part 3)
 
@@ -377,7 +377,7 @@ Without further ado, let’s dive into everything you need to know to design ani
 
 01 [What is Canva?](#Part 1)
 
-02 [Animate An Element In Canva ](#Part 2)
+02 [Animate An Element In Canva](#Part 2)
 
 03 [Make Elements Move In Canva](#Part 3)
 
