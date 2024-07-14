@@ -3665,53 +3665,5 @@ Goonies website is another example of parallax scrolling. On this website when y
      data-full-width-responsive="true"></ins>
 
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://animation-videos.techidaily.com/updated-in-2024-the-coolest-anime-characters-ever-list-of-top-favorites/"><u>Updated In 2024, The Coolest Anime Characters Ever| List of Top Favorites</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-finding-some-different-ways-to-animated-cartoon-of-yourself/"><u>New 2024 Approved Finding Some Different Ways to Animated Cartoon of Yourself</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/how-to-make-a-3d-cartoon-of-yourself/"><u>How to Make a 3D Cartoon of Yourself</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-in-2024-18-best-tools-and-services-to-create-animated-videos-for-your-business/"><u>New In 2024, 18 Best Tools and Services to Create Animated Videos for Your Business</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-learn-how-to-make-architecture-animation/"><u>Updated Learn How to Make Architecture Animation</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/in-2024-can-i-still-do-animated-logo-design-without-design-skills/"><u>In 2024, Can I Still Do Animated Logo Design Without Design Skills?</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-free-top-21-best-anime-websites-to-watch-anime-online/"><u>New 2024 Approved FREE Top 21 Best Anime Websites to Watch Anime Online</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-in-2024-popular-tips-on-learning-animate-rigging/"><u>Updated In 2024, Popular Tips on Learning Animate Rigging</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/2024-approved-how-to-make-gif-instagram/"><u>2024 Approved How to Make GIF Instagram</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/convert-animated-gif-from-video-for-2024/"><u>Convert Animated GIF From Video for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-top-10-best-photo-to-animation-converters/"><u>New 2024 Approved Top 10 Best Photo to Animation Converters</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-in-2024-18-best-tools-and-services-to-create-animated-videos-for-business-2023/"><u>Updated In 2024, 18 Best Tools and Services to Create Animated Videos for Business 2023</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/learn-disney-cartoon-drawing-to-see-more-disney-magic-moments/"><u>Learn Disney Cartoon Drawing to See More Disney Magic Moments</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-12plus-stunning-instagram-gif-stickers-for-2024/"><u>Updated 12+ Stunning Instagram GIF Stickers for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-all-about-3d-medical-animation/"><u>New All About 3D Medical Animation</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/in-2024-how-i-animate-discord-profile-pictures-and-you-can-too/"><u>In 2024, How I Animate Discord Profile Pictures (& You Can Too)</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-in-2024-create-or-find-good-morningnight-gifs/"><u>New In 2024, Create or Find Good Morning/Night GIFs</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-top-10-best-photo-to-animation-converters-that-give-you-an-advantage/"><u>New Top 10 Best Photo to Animation Converters That Give You an Advantage</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-learn-what-are-differences-between-2d-and-3d-animation/"><u>New 2024 Approved Learn What Are Differences Between 2D And 3D Animation</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/10-cartoon-canvas-painting-ideas-for-total-beginners-for-2024/"><u>10 Cartoon Canvas Painting Ideas for Total Beginners for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-how-to-animate-graphics-in-canva-for-2024/"><u>Updated How To Animate Graphics in Canva for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/best-gif-croppers-how-to-crop-an-animated-gif-for-2024/"><u>Best GIF Croppers How to Crop an Animated GIF for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/how-to-obtain-and-create-animated-gif-icons-like-a-pro-for-2024/"><u>How to Obtain and Create Animated GIF Icons Like a Pro for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-what-wikipedia-wont-tell-you-specifically-about-character-rigging/"><u>New What Wikipedia Wont Tell You Specifically About Character Rigging</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/ultimate-guide-to-animated-characters-drawings/"><u>Ultimate Guide to Animated Characters Drawings</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-10-best-animation-makers-for-kids-to-have-fun-for-2024/"><u>New 10 Best Animation Makers for Kids to Have Fun for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-oneplus-nord-n30-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On OnePlus Nord N30 5G</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/must-have-apps-for-real-time-video-translation-for-2024/"><u>Must-Have Apps for Real-Time Video Translation for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-iphone-11-pro-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on iPhone 11 Pro</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/6-methods-for-switching-from-apple-iphone-14-plus-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>6 Methods for Switching from Apple iPhone 14 Plus to Samsung | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-apple-iphone-xs-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your Apple iPhone XS without Security Questions?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/nokia-video-recovery-recover-deleted-videos-from-nokia-by-fonelab-android-recover-video/"><u>Nokia Video Recovery - Recover Deleted Videos from Nokia</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-runtime-error-424-object-required-error-in-excel-2013-by-stellar-guide/"><u>How to fix runtime error 424 object required error in Excel 2013</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-realme-c67-4g-device-sim-by-drfone-android/"><u>Easily Unlock Your Realme C67 4G Device SIM</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-c53-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabled-apple-iphone-14-how-to-unlock-a-disabled-apple-iphone-14-by-drfone-ios/"><u>Disabled Apple iPhone 14 How to Unlock a Disabled Apple iPhone 14?</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-tecno-spark-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Tecno Spark 20? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-infinix-note-30-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Infinix Note 30 Users</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/is-your-apple-iphone-6s-plus-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>Is Your Apple iPhone 6s Plus in Security Lockout? Proper Ways To Unlock</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-xiaomi-14-ultra-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Xiaomi 14 Ultra FRP Locks</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-13-apples-new-iphone-drfone-by-drfone-ios/"><u>How to Unlock iPhone 13, Apples New iPhone | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oppo-find-n3-flip-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Oppo Find N3 Flip Phone</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-oppo-a78-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Oppo A78 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-infinix-hot-30-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Infinix Hot 30 5G</u></a></li>
-</ul></div>
+
 

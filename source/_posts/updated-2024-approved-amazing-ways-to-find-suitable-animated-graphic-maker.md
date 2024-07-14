@@ -3377,55 +3377,5 @@ Goonies website is another example of parallax scrolling. On this website when y
      data-full-width-responsive="true"></ins>
 
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://animation-videos.techidaily.com/2024-approved-how-to-make-your-gif-on-whatsapp-in-simple-ways/"><u>2024 Approved How to Make Your GIF on WhatsApp in Simple Ways</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/top-12-video-to-gif-converters-high-quality-to-check-out-for-2024/"><u>Top 12 Video to GIF Converters High Quality to Check Out for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-in-2024-what-wikipedia-wont-tell-you-specifically-about-character-rigging/"><u>Updated In 2024, What Wikipedia Wont Tell You Specifically About Character Rigging</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/in-2024-top-4-websites-to-get-anime-footage-for-free/"><u>In 2024, Top 4 Websites to Get Anime Footage for Free</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-in-2024-how-to-make-pinterest-slideshow-in-simple-ways/"><u>New In 2024, How To Make Pinterest Slideshow in Simple Ways</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-2024-approved-how-to-make-3d-cartoon-of-yourself/"><u>Updated 2024 Approved How to Make 3D Cartoon of Yourself</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-top-10-sketch-animation-video-makers/"><u>New 2024 Approved Top 10 Sketch Animation Video Makers</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/great-guide-for-beginners-on-2d-animation-making/"><u>Great Guide for Beginners on 2D Animation Making</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/animated-business-logos-and-tools-to-create-for-2024/"><u>Animated Business Logos and Tools to Create for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/8-top-motion-graphics-online-tools-for-your-inspiration-for-2024/"><u>8 Top Motion Graphics Online Tools for Your Inspiration for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-2024-approved-how-to-make-slideshow-in-linkedin/"><u>Updated 2024 Approved How to Make Slideshow in LinkedIn</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-2024-approved-10-classical-animated-cartoon-types-with-examples/"><u>Updated 2024 Approved 10 Classical Animated Cartoon Types With Examples</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/2024-approved-learn-pencil2d-animation-tutorial-overview/"><u>2024 Approved Learn Pencil2D Animation Tutorial Overview</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-best-gif-croppers-how-to-crop-an-animated-gif-for-2024/"><u>New Best GIF Croppers How to Crop an Animated GIF for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-2024-approved-how-to-reduce-gif-size-and-best-gif-resizers/"><u>Updated 2024 Approved How to Reduce GIF Size and Best GIF Resizers</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/methods-to-make-photo-motion-effect-online-in-2024/"><u>Methods to Make Photo Motion Effect Online, In 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/types-of-cartoon-styles-you-may-use-for-the-next-marketing-project-for-2024/"><u>Types of Cartoon Styles You May Use for The Next Marketing Project for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-in-2024-12-animated-slideshow-powerpoint-templates-and-tools-to-make-them/"><u>Updated In 2024, 12 Animated Slideshow PowerPoint Templates and Tools to Make Them</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-in-2024-how-to-create-your-own-avatar-free/"><u>New In 2024, How to Create Your Own Avatar Free</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-10-amazing-cartoon-music-examples-you-need-to-bookmark/"><u>New 2024 Approved 10 Amazing Cartoon Music Examples You Need to Bookmark</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/2024-approved-what-is-still-motion-animation/"><u>2024 Approved What Is Still Motion Animation?</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/in-2024-26-cool-anime-girl-names-and-their-meanings/"><u>In 2024, 26 Cool Anime Girl Names and Their Meanings</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/in-2024-how-to-convert-video-to-gif-fast-and-easy/"><u>In 2024, How to Convert Video to GIF Fast & Easy</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-fuel-your-creativity-with-10-awesome-collection-of-2d-animation-examples-for-2024/"><u>New Fuel Your Creativity with 10 Awesome Collection of 2D Animation Examples for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-how-to-create-a-whiteboard-video-step-by-step/"><u>New How to Create a Whiteboard Video Step by Step</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-best-15-instant-classics-animated-cartoon-movies/"><u>New 2024 Approved Best 15 Instant Classics Animated Cartoon Movies</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-whats-music-video-gif-and-how-to-add-music-to-your-gif-files/"><u>New 2024 Approved Whats Music Video GIF & How to Add Music to Your GIF Files</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-the-only-guide-youll-ever-need-to-learn-about-gif-video-downloader-for-2024/"><u>New The Only Guide Youll Ever Need to Learn About GIF Video Downloader for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-tutorial-guide-to-animate-pictures-in-canva/"><u>Updated Tutorial Guide to Animate Pictures in Canva</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-2024-approved-15-best-sites-to-watch-cartoons-online-free-and-so-can-you/"><u>New 2024 Approved 15 Best Sites to Watch Cartoons Online Free And So Can You</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/easy-cartoon-characters-drawing-tutorials-for-you-who-are-learning-to-draw/"><u>Easy Cartoon Characters Drawing Tutorials for You Who Are Learning to Draw</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/new-in-2024-ways-to-get-the-most-up-to-date-cartoon-character-design-tips/"><u>New In 2024, Ways to Get the Most up to Date Cartoon Character Design Tips</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-you-can-turn-a-tiktok-into-a-gif-now-heres-how-for-2024/"><u>Updated You Can Turn a TikTok Into a GIF Now. Heres How for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-nurturing-the-spirit-through-the-top-10-intellectual-anime-websites-for-2024/"><u>Updated Nurturing the Spirit Through the Top 10 Intellectual Anime Websites for 2024</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/2024-approved-top-12-illusion-gifs-top-picks/"><u>2024 Approved Top 12 Illusion Gifs Top Picks</u></a></li>
-<li><a href="https://animation-videos.techidaily.com/updated-best-15-2d-animation-software-free-that-worth-to-try/"><u>Updated Best 15 2D Animation Software Free That Worth to Try</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/did-your-iphone-15-plus-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>Did Your iPhone 15 Plus Passcode Change Itself? Unlock It Now</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-magic-6-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Magic 6 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-honor-play-8t-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Honor Play 8T to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-oppo-find-x6-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Oppo Find X6 to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/in-2024-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>In 2024, AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-xiaomi-13t-pro-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Xiaomi 13T Pro?</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-huawei-nova-y91-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Huawei Nova Y91</u></a></li>
-<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-huawei-p60-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Huawei P60</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-honor-100-pro-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-14-support-mkv-video-files-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Xiaomi 14 support MKV video files?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-motorola-razr-40-ultra-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Motorola Razr 40 Ultra</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-poco-x5-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Poco X5 | Dr.fone</u></a></li>
-</ul></div>
+
 
